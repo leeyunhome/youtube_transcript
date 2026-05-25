@@ -1,0 +1,2858 @@
+# 오픽노잼 대본 모음
+
+- 병합된 파일 수: 31개
+- 생성일: youtube_transcript
+
+---
+
+<!-- Source: 5 reasons why you are IM123 for OPIc_script.md -->
+# 5 reasons why you are IM1/2/3 for OPIc
+
+- **Video URL:** https://www.youtube.com/watch?v=UXY5ZiloSvM
+
+## Script & Description
+
+파고다 인강 / 교재 / 수업 / 파일 / 점수 올리기:
+https://linktr.ee/opicnojam
+
+---
+
+<!-- Source: AL학생은 자기소개도 다르게 할까  AL 시리즈 학생편 001_script.md -->
+# AL학생은 자기소개도 다르게 할까? | AL 시리즈 학생편 001
+
+- **Video URL:** https://www.youtube.com/watch?v=WL6JVx9e05c
+
+## Closed Captions Transcript
+
+- **[00:22]** Jake I J so honey what you can eat oppa
+- **[00:24]** come on Anita where he or picture merely
+- **[00:26]** come into the cooked oh-seok energy I'm
+- **[00:28]** a computer Manette check ok Elsi
+- **[00:31]** research I'm under Putin J got a me
+- **[00:33]** perfect on AI Hudson or John I gotta go
+- **[00:35]** Oh picture Murtagh catchy hello to your
+- **[00:37]** mother
+- **[00:38]** dubaku Pomodoro bin directory err Nikki
+- **[00:41]** me morning she will juice email
+- **[00:43]** I know al is very hard but please please
+- **[00:45]** do not give up if we put our minds to it
+- **[00:47]** the sky's the limit
+- **[00:49]** good luck tonight Ola has a catchy
+- **[00:50]** kogarashi de all right she's she's
+- **[00:52]** waiting for me at the coffee shop here
+- **[00:54]** and should be nearby
+- **[00:55]** I don't exactly know where it is ok I'm
+- **[00:57]** looking for it right now she sent me the
+- **[00:59]** address all right to this place and it's
+- **[01:03]** the first time I've ever been to this
+- **[01:04]** coffee shop so we're gonna check it out
+- **[01:06]** right now
+- **[01:07]** all right but this place is really nice
+- **[01:08]** man look at this place I don't know if
+- **[01:10]** you guys can see it but ok here we go
+- **[01:12]** let's take a look over here and there's
+- **[01:13]** a lot of people over here a lot of
+- **[01:15]** people all right ok wait I think I found
+- **[01:17]** it here check it out ok hold on alright
+- **[01:19]** that's the place right here closes at 2
+- **[01:20]** a.m. perfect let's take a look
+- **[01:29]** okay I found it hey what's up what's up
+- **[01:36]** hey let's start the interview please
+- **[01:40]** introduce yourself you know I ain't sure
+- **[02:04]** the design I decide to go to kpop music
+- **[02:09]** dance cheers my a chick that's my weight
+- **[02:12]** so I went there actually you know what
+- **[02:18]** actually I took twice just twice classes
+- **[02:22]** just from this week I'm gonna keep
+- **[02:27]** learning okay
+- **[02:29]** and that's pretty much what I have to
+- **[02:31]** say about myself
+- **[02:33]** all right so ratio is a student of mine
+- **[02:35]** could you go Oh Peter come on joy you
+- **[02:37]** donated their current account or bigger
+- **[02:38]** there's some money Pilton go money young
+- **[02:40]** victim go come on Kim and then the other
+- **[02:42]** one through we had some money daughter
+- **[02:43]** can help on that go ahead sir so please
+- **[02:45]** do forgive her if you feel she's a
+- **[02:46]** little bit rusty at first but I could
+- **[02:49]** pretty much guarantee that after this
+- **[02:51]** whole entire al series you'll get a
+- **[02:53]** better understanding of what Al truly
+- **[02:56]** feels like in the end I hope this will
+- **[02:58]** be very helpful to all of you cha check
+- **[03:00]** out Rachel her my nugget on it don't
+- **[03:02]** listen to a turtle ship you know no
+- **[03:03]** matter jump on a had enjoyed a served in
+- **[03:06]** a richer band of another Tom I'm
+- **[03:08]** gon ganna go okay so Monica touching
+- **[03:10]** know how that corrected our Smita
+- **[03:12]** natalie portman original take a ballet
+- **[03:14]** Mariana de Madrid okay so matters Riku
+- **[03:16]** and she's also able to explain the
+- **[03:18]** simple things in greater detail non-stop
+- **[03:21]** anyway constant talking is the most
+- **[03:24]** important thing when it comes to a.m.
+- **[03:26]** and we're gonna look into that in
+- **[03:27]** greater detail no he says she
+- **[03:29]** cha-cha-cha mangia hi I'm Rachel
+- **[03:30]** rehearsal no more no much was to me that
+- **[03:32]** you're a boon introduction I had a hi my
+- **[03:34]** name is Rachel hey Hachi machi go can
+- **[03:36]** you hi I'm Rachel hey Bishop sure that
+- **[03:38]** is much much smoother yogi Bruna
+- **[03:41]** I'm huntin to Chi mashup show my name is
+- **[03:43]** who my name is what my name is Slim
+- **[03:47]** Shady
+- **[03:48]** that song is a very special case sonnig
+- **[03:50]** about the coup notable Luminara comes
+- **[03:52]** ahead of ships you know you people in a
+- **[03:54]** racially Banat are lesser uh uh actually
+- **[03:57]** my etiquette scenario i'm not an e or
+- **[03:59]** fillers me and saw a job because Hank
+- **[04:02]** Economo sleep or poison Krieger Yogi's
+- **[04:04]** what could honest hunt head up or head
+- **[04:06]** sail I don't know what to tell you about
+- **[04:07]** myself
+- **[04:08]** no much was it okay yeah I can come tall
+- **[04:10]** tends to get her let me know I don't
+- **[04:12]** really know what to tell you about
+- **[04:13]** myself we gotta touch what Sumida know
+- **[04:16]** he really did not work a yoga told coach
+- **[04:18]** your puny nail these days I really into
+- **[04:21]** I really into that Nina I'm really into
+- **[04:23]** kpop but I'm sure Rachel was just
+- **[04:25]** nervous because a normal conversation
+- **[04:27]** she usually doesn't make this kind of
+- **[04:29]** mistake can a yogi boo boo boo sheep
+- **[04:31]** chill I'm really into kpop Musa you're
+- **[04:33]** gonna take a day I'm told I couldn't
+- **[04:36]** give me Nika do you take it smooth
+- **[04:37]** hisses no he's on her way to the
+- **[04:39]** highlighting all that time you know what
+- **[04:40]** you gotta charge a suit on the nail take
+- **[04:42]** a natural Huggle are gonna be owned in
+- **[04:44]** the car up under don't my nice elbows
+- **[04:46]** sure because I'm you know you know what
+- **[04:48]** to Sumida now this part over here was
+- **[04:50]** also very natural I gained a lot of
+- **[04:52]** weight these days
+- **[04:54]** so I need to lose my weight because
+- **[04:56]** honey money talks to the gup-a I didn't
+- **[04:58]** eat your hand pure nerd don't want no
+- **[05:00]** money young Abraham Enoch all Hudson
+- **[05:02]** didn't I gained a lot of weight it came
+- **[05:03]** monitor I know Justin cuz so what he's
+- **[05:05]** so what her are Lake Anthony I get
+- **[05:07]** history so damn it cricket a are nick
+- **[05:09]** meao
+- **[05:10]** Krieger yogi cannot touch you guy okay
+- **[05:12]** oh so I really need to lose my weight
+- **[05:15]** how could he go yogi take a jaunt an
+- **[05:17]** eraser these days sigit continent hang
+- **[05:19]** on Zuma
+- **[05:19]** they don't mind Hudson today in these
+- **[05:21]** days they don't make a money to continue
+- **[05:22]** in your pay go connect these days or
+- **[05:24]** hominid person Thomas me that you're
+- **[05:26]** giving JH early a continue super jock
+- **[05:29]** hajikko Hoshi kuchisake-onna get up
+- **[05:32]** underdog John Terry attacking the key
+- **[05:34]** Mina Mina who taught him the heads of
+- **[05:36]** tillymann are crooked and Homolka same
+- **[05:38]** human hand to Vulcan tanti don't Hudson
+- **[05:40]** drink a so kuchela go Heather Sutra no
+- **[05:42]** more money could come a nerd with
+- **[05:44]** Heather be a giveaway Nika critical can
+- **[05:46]** you handle her go hazel tillymann
+- **[05:47]** Oakland oh no Gazoo yoginah so I should
+- **[05:50]** decide single coming so I decide to go
+- **[05:53]** to kpop music Dance Academy
+- **[05:54]** - Nikita I decided to go to kpop music
+- **[05:58]** dance academy to lose my to lose my
+- **[06:01]** weights you can't say don't get take it
+- **[06:02]** smooth and say oh you're here a chili
+- **[06:04]** oil your name you can't a none situation
+- **[06:06]** okay so matter so initially I pick a
+- **[06:08]** captain I go take a ship Cory hand point
+- **[06:10]** to the case okay man didn't dare talk
+- **[06:12]** we're gonna go meet her no he said took
+- **[06:14]** him to a child sir can laminin you
+- **[06:15]** cannot admit that I decided to take kpop
+- **[06:18]** dance lessons to lose my weight dance
+- **[06:20]** lessons through hominin they got up two
+- **[06:22]** songs and among people who ate that
+- **[06:24]** cream the kinian cousin jung yong-hwa no
+- **[06:25]** choice hard I want the focus got Amida
+- **[06:28]** yeah there's a Manny a puma no huh
+- **[06:30]** no Sandra I need to go to the hospital
+- **[06:31]** Jenner in the adenine I need to go see a
+- **[06:34]** doctor
+- **[06:35]** you came on a good news honey catch a
+- **[06:36]** common angle Salim didn't I need to go
+- **[06:38]** to a car repair center the native
+- **[06:40]** speaker didn't I need to take my car to
+- **[06:42]** a mechanic I want to e go to pick put a
+- **[06:45]** ruler and a g-man credito in the kaminin
+- **[06:47]** y'all gonna hunt a little commonality to
+- **[06:49]** add to my point let me give you some
+- **[06:51]** more examples if you have pain in your
+- **[06:53]** teeth Koreans go to a dental clinic but
+- **[06:56]** we go see a dentist if you need to get a
+- **[06:59]** haircut Koreans go to a hair salon but
+- **[07:02]** we go to a barber or a hairstylist
+- **[07:05]** I'm Mattoon Yahweh no Cushi pure Eau de
+- **[07:07]** cámara gonna tell y'all he's on the
+- **[07:09]** Rachel it's your money Mahajan their
+- **[07:10]** pupil minute so I went there take it to
+- **[07:12]** cook and I mean actually you know what
+- **[07:14]** you're gonna take it on their Nomad or
+- **[07:16]** actually dissociate you gonna yak I'll
+- **[07:18]** make a nervous had a coup pure progeny
+- **[07:20]** gun you know captain Tanner like hey so
+- **[07:22]** soon got her an estimate you kiss a yogi
+- **[07:25]** grammar or take a John Cacioppo Keo
+- **[07:26]** actually I took twice just twice classy
+- **[07:29]** girl money to listen to Garnett jokin
+- **[07:31]** thoughts hands rocky hell I mean then I
+- **[07:33]** only took two classes so far this week
+- **[07:36]** yogi keyword didn't so far she can
+- **[07:39]** catching in good on the comida Charlie
+- **[07:41]** okay and you gotta get yourself I'm
+- **[07:42]** gonna keep learning or cancel and then
+- **[07:44]** I'm going to keep learning to get up you
+- **[07:47]** know go man a hawk Center do you keep
+- **[07:48]** droppin in there something else mica
+- **[07:50]** going to annemun gonna torture key or a
+- **[07:53]** bundle iboga talk on Angie could you're
+- **[07:55]** gonna come into me that I'm gonna change
+- **[07:56]** help submit I'm not a good town bubala
+- **[07:58]** normal smooth head Samira and that's
+- **[08:00]** pretty much what I have to say about
+- **[08:02]** myself can a yo-yo coochie coohcie Peggy
+- **[08:05]** was her
+- **[08:05]** auto park manager Sumida and that's
+- **[08:08]** much all I have to say about myself so
+- **[08:10]** smooth so nice I highly recommend it to
+- **[08:13]** all of you
+- **[08:14]** this is opaque no J within an AR we s
+- **[08:18]** all your cattle huge a derecho get her
+- **[08:21]** to medium Shannon Airport introduction
+- **[08:23]** or his choking James Heller decompose
+- **[08:25]** economical all place economical now at
+- **[08:28]** 1415 I hate you septa massamilla he al
+- **[08:31]** series come anatomical Kudo to head you
+- **[08:34]** she go like Kudo money love usage are
+- **[08:36]** critical rate you on to the Monica who
+- **[08:38]** yet you shall soon after kissing me the
+- **[08:40]** phone
+
+
+---
+
+<!-- Source: controlled singular 전략을 사용못하면 AL 꿈깨!  AL 시리즈 학생편 002_script.md -->
+# "controlled singular" 전략을 사용못하면 AL 꿈깨! | AL 시리즈 학생편 002
+
+- **Video URL:** https://www.youtube.com/watch?v=dFw5ktXLHy0
+
+## Closed Captions Transcript
+
+- **[00:01]** no one you indicated that you go to
+- **[00:04]** coffee shops tell me about the cafes or
+- **[00:06]** coffeehouses in your community
+- **[00:08]** you're a boom this is pushing number two
+- **[00:11]** of our large nest which means this is
+- **[00:13]** the first question of our first combo
+- **[00:15]** sense the topic cafes Oh Rachel a cafe
+- **[00:19]** at the Yakima pardon me I'll seek easier
+- **[00:21]** to get league in in normal polyester Oh
+- **[00:23]** cafes could Canon go both I need to come
+- **[00:25]** and hit me that cafes I'm going dog have
+- **[00:28]** face yoga combo buna ziua indignant
+- **[00:30]** another saucer could kana Asumi also
+- **[00:32]** Sangha animals of appointments O'Hagan
+- **[00:34]** natural I can do Kissimmee that yoga
+- **[00:36]** Suen Ju or she can shoot on dopamine
+- **[00:38]** autonomous City Macintosh in touch with
+- **[00:41]** me that you did also cafes around my
+- **[00:43]** area right you didn't she go to hell
+- **[00:46]** both a critical your gain enjoy to Tony
+- **[00:48]** a cafes around my area
+- **[00:50]** oh my where do I begin no idiot can do
+- **[00:53]** shiitake at the gym I could in the key
+- **[00:55]** Mia I'm Cheung natural Hamidah Krieger
+- **[00:57]** yogi oh my - brunette I don't go to
+- **[00:59]** salted here it is Rosa oh boy where do I
+- **[01:02]** pick an enemy on ok where do I begin
+- **[01:08]** there's so many cafes nearby my home
+- **[01:11]** yogi rachana plural community can plural
+- **[01:14]** shiitake Romeo so katana may control the
+- **[01:16]** singular chokotto can enjoy oh yeah you
+- **[01:18]** know how got to me that naina each human
+- **[01:19]** a catchy air to head that that scary
+- **[01:22]** obseunikka your Nakajima Arango Cunha
+- **[01:24]** Hungama Monica that coup strategy me de
+- **[01:26]** cuyo get there harder
+- **[01:27]** hop chassé up error there are so many
+- **[01:29]** cafes you gotta throw that away Harlem
+- **[01:32]** unit there are myriads of cafes there
+- **[01:34]** are tons of cafes there are loads of
+- **[01:36]** cafes even gonna top option in me that
+- **[01:39]** so many buddha jumped off vocabulary der
+- **[01:41]** booth thought we should premiere now you
+- **[01:43]** don't see it oh hey blue chips you I can
+- **[01:44]** eat tonight
+- **[01:45]** don't you may wear go in the dirt there
+- **[01:46]** are hurt they can young there's little
+- **[01:48]** homie that there is when I'm incognito
+- **[01:50]** shoe nickel creek I you know there's so
+- **[01:52]** many cafes there's a myriad of cafes
+- **[01:55]** there's eternal cafes there's loads of
+- **[01:58]** cafes ego don't 1 John natural Hamidah
+- **[02:01]** technically when it comes to grammar it
+- **[02:03]** is incorrect but this is a language
+- **[02:05]** speaking test and if most people do this
+- **[02:08]** I would tend to go with the majority
+- **[02:09]** could go to Anand
+- **[02:11]** yeah oh yeah yeah yeah people put that
+- **[02:13]** young Polish person I couldn't bring to
+- **[02:15]** them you don't go to a talk show get it
+- **[02:16]** on so there's a myriad of cafes let me
+- **[02:19]** go get TL second apple ship show you
+- **[02:21]** know it's ubiquitous they're literally
+- **[02:23]** scattered everywhere
+- **[02:25]** ah yogi they aren't any time there you
+- **[02:28]** go none that they is Roja me and Amina
+- **[02:30]** humming up pick it till they get to they
+- **[02:32]** go we hate them on it Laurel weird Anika
+- **[02:34]** nedeau Jimenez okay then and yogi so
+- **[02:50]** Starbucks idea to some place yet it also
+- **[02:53]** leads to them under me on Hawk and I'm a
+- **[02:55]** control the singular little castle
+- **[02:57]** Kaneohe so yeah a weak point enough
+- **[02:58]** bucco shield energy dome thoughts are
+- **[03:01]** known as system you watch what's on yeah
+- **[03:02]** but there's this one place it's called
+- **[03:04]** coffee land you don't know if you're
+- **[03:06]** talking about hotels mention the name of
+- **[03:08]** the hotel if you're talking about a
+- **[03:10]** movie mention the title of the movie if
+- **[03:12]** you're talking about a restaurant
+- **[03:13]** mention the name of the restaurant
+- **[03:15]** these are details that should be
+- **[03:16]** automatic in your answers
+- **[03:18]** ciao Rachel need to get to the pizza but
+- **[03:19]** there's one place that I like know you
+- **[03:22]** took him to a detail Holloman there's
+- **[03:23]** this one place John touch while but
+- **[03:25]** there's this one place that I like
+- **[03:27]** because this place is like my home no
+- **[03:30]** more no more to us a minute Oh pick
+- **[03:31]** combo set to none hey gotcha category
+- **[03:33]** guy sir description habit past
+- **[03:35]** experience and comparison through goku
+- **[03:37]** combo set union moon jaga koi Khushi Pro
+- **[03:40]** description in the description a
+- **[03:42]** simulator summoner no much wild dog in a
+- **[03:45]** coffee shop huh go Nami like a similar
+- **[03:47]** stimulus Obama rachana the coffee shop
+- **[03:49]** is like my home quick attack dark Umaga
+- **[03:52]** main point to get the Sumida my
+- **[03:54]** your nobody show my heart that you can't
+- **[03:55]** kim jang taemi also hakama communal
+- **[03:57]** similarly got charted oh sing again let
+- **[03:59]** me a main point to my head or tail yet a
+- **[04:01]** draw so I love this place because it
+- **[04:03]** makes me feel so comfortable
+- **[04:06]** Yogi's hey got you chew on points at
+- **[04:07]** high again soon what is it coffee shop
+- **[04:09]** how do you feel about it I love it why
+- **[04:12]** because it makes me feel comfortable
+- **[04:13]** coos hey gotcha again I'm your Jonica
+- **[04:15]** main point to go to me what how do you
+- **[04:17]** feel about it and why yogi so choco taco
+- **[04:20]** whoops röpke Holliman
+- **[04:21]** either she go to Hammond Hamidah this
+- **[04:22]** place makes me feel like I'm
+- **[04:24]** home if phrase makes me feel it you
+- **[04:27]** can't are descriptive Chanukah money
+- **[04:28]** your lavender again to tournament we go
+- **[04:30]** to Rachel a parent a panel because so
+- **[04:33]** much hands-on power would say the angles
+- **[04:35]** under money because Roger you know there
+- **[04:37]** are so many in Korea but they are or
+- **[04:43]** Francis you're getting John Kramer it is
+- **[04:46]** also company now coop open and you'll
+- **[04:47]** get a second appointment Amina you know
+- **[04:49]** there's so many cafes in Korea but they
+- **[04:52]** are usually all franchises anemia but
+- **[04:54]** most of them are franchises now in a
+- **[04:57]** ratio to Korea Panama know much Harrison
+- **[04:59]** Korea hello Huck center yoga - Julia my
+- **[05:02]** I mean I'm controlled accomplishers have
+- **[05:04]** a 30 second a okay puno second Puma no
+- **[05:06]** no you parameter submitter rate children
+- **[05:08]** or no hassle but they are usually or
+- **[05:10]** franchises or the Anita all imita all
+- **[05:13]** but they are usually all ranch Isis
+- **[05:18]** franchise so there aren't many people
+- **[05:21]** what I like this place your get the
+- **[05:24]** choke on to the gate so glad you go to
+- **[05:25]** the second appointment to me that what I
+- **[05:26]** like about this place is that it's not a
+- **[05:29]** franchise so there aren't many people
+- **[05:32]** there yogi so John thought a h's toca
+- **[05:34]** toca la mina you to come in to me that
+- **[05:36]** what i like about this place is that
+- **[05:37]** it's not a franchise and so it's not
+- **[05:40]** overflowing with too many customers
+- **[05:42]** anymore and so it's not overflowing with
+- **[05:45]** too many loud obnoxious customers yo yo
+- **[05:48]** give hide and seek approval minute
+- **[05:50]** aren't a goalkeeper each and i aren't
+- **[05:52]** people
+- **[05:53]** okay minor hello said I'm done aren't a
+- **[05:55]** goalkeeper no money honey yo Rachel yo
+- **[05:57]** get a guitar sir okay I'll give people
+- **[05:59]** women and people all the you
+- **[06:01]** poor poor people can you choke on torch
+- **[06:03]** I also get to leave me on songs how
+- **[06:05]** badly has to do some people so it is
+- **[06:08]** and I feel relaxed so I like Olivia no
+- **[06:12]** he's so take it to home gonna so it is
+- **[06:14]** cozy and I mean so to talk he gets it
+- **[06:17]** cuts into the money young boy they're so
+- **[06:18]** confident sculpt some you know koi panel
+- **[06:20]** and Hannah Oh Huggle the new a little so
+- **[06:22]** it is cozy and relaxing portugee gonna
+- **[06:25]** nap Bumgarner Annie can a yogi Oh
+- **[06:27]** picture me to come to Chicago to go see
+- **[06:29]** permanent and haggle could town cannot
+- **[06:31]** hurt okay yeah I mean you get to keep
+- **[06:33]** worker here so it is cozy and I feel
+- **[06:36]** relaxed
+- **[06:36]** oh no no which way can I could town boom
+- **[06:38]** money I can do that Joe so I like go
+- **[06:41]** there you're getting till you're cool
+- **[06:42]** you can't you so I like to go there
+- **[06:45]** honeymoon I like going there ciao not
+- **[06:47]** simply to come out at me that something
+- **[06:48]** you ought to get on to a feeling to grow
+- **[06:50]** tomahawk I oh no even so it is cozy and
+- **[06:53]** I feel relaxed good time a joke um tells
+- **[06:55]** her mother I'm in the middle I mean it's
+- **[06:57]** just so relaxing whenever I'm there
+- **[06:59]** don't you get you got to cut their
+- **[07:01]** mother herself in they come John Rizzo
+- **[07:03]** contango Pune a good helmet that's why I
+- **[07:05]** love going there
+- **[07:07]** you didn't shake your own age oh come on
+- **[07:08]** come John people no cutting her mommy so
+- **[07:10]** Joe Kentucky a hominin my
+- **[07:12]** kitchen John will add our committee so
+- **[07:14]** it is cozy and I feel relaxed I mean
+- **[07:16]** it's just so relaxing whenever I'm there
+- **[07:19]** that's why I love going there I could go
+- **[07:22]** to another money hot sing the dinner
+- **[07:24]** song or take each one so this so that so
+- **[07:28]** talented Chi Minh can they utter time
+- **[07:30]** that's why godo helps you if you do that
+- **[07:32]** you will sound even smoother so try to
+- **[07:35]** mix it up so that's why you know I
+- **[07:38]** already told you in my introduction but
+- **[07:41]** they usually play kpop songs that I like
+- **[07:46]** so I really appreciate it
+- **[07:49]** cha yogi so Natura a ratio kitchen for
+- **[07:52]** point yeah but you know what I already
+- **[07:54]** told you in my introduction Rachel and
+- **[07:57]** chicken introduction again kpop song
+- **[07:59]** dinner
+- **[08:00]** yogi cafe top again Omura Hannah Graham
+- **[08:02]** you camera at home Chancellor Patterson
+- **[08:04]** pocket of soil can they take a
+- **[08:06]** battleship Anissa combo set junior I got
+- **[08:08]** you got a great job your hundred
+- **[08:09]** inhabits me that habits and main point
+- **[08:11]** to help go can a freestyle go you can go
+- **[08:13]** free started
+- **[08:15]** circa modern money hurts women skiers
+- **[08:17]** are ok um Jim Thornton a countryman an
+- **[08:19]** introduction a a get bigger crew habit
+- **[08:22]** to moon a younger Hammond home our money
+- **[08:24]** our Sweeney you guessing ego could
+- **[08:25]** charge or habit question desert dr.
+- **[08:27]** Koontz Rob Kadel issue in this strategy
+- **[08:29]** meter change a yogi Rachel eight hit up
+- **[08:31]** hunger jump toe aah Joker contaminant
+- **[08:33]** you don't she go home in the middle you
+- **[08:34]** know it's funny haha take it looking gay
+- **[08:37]** cell anemia Oh take action game you
+- **[08:39]** don't need comida you know it's funny
+- **[08:41]** since I feel like myself here and that
+- **[08:43]** they also play kpop sometimes I can't
+- **[08:46]** even tell whether I'm at home or at a
+- **[08:48]** cafe Rachel on conclusion eight you
+- **[08:51]** can't say oh so I really appreciate that
+- **[08:53]** grupo de choclo to rocket conclusion or
+- **[08:56]** mmm oppa Congo English conversation I go
+- **[08:58]** to national are coming up this is obey
+- **[09:01]** no J Kudo cut would like have an e al
+- **[09:04]** series get money Tommy doesn't smell
+- **[09:05]** choke yourself boom
+
+
+---
+
+<!-- Source: Don't be happy you got the IM2. You could have definitely gotten the IH!  IM Series 016_script.md -->
+# Don't be happy you got the IM2. You could have definitely gotten the IH! | IM Series 016
+
+- **Video URL:** https://www.youtube.com/watch?v=EOPpAJzePgo
+
+## Script & Description
+
+
+---
+
+<!-- Source: ihu14 non-time 끝판왕  IM 시리즈 021_script.md -->
+# ihu14 non-time 끝판왕 | IM 시리즈 021
+
+- **Video URL:** https://www.youtube.com/watch?v=zQ--iRnEC7w
+
+## Script & Description
+
+
+---
+
+<!-- Source: ihu14 time 끝판왕  오픽 11 가이드 027_script.md -->
+# ihu14 time 끝판왕 | 오픽 1:1 가이드 027
+
+- **Video URL:** https://www.youtube.com/watch?v=Uq3brquwoMY
+
+## Script & Description
+
+
+---
+
+<!-- Source: ihu15 끝판왕  오픽 11 가이드 028_script.md -->
+# ihu15 끝판왕 | 오픽 1:1 가이드 028
+
+- **Video URL:** https://www.youtube.com/watch?v=xJQbvs8bDyA
+
+## Script & Description
+
+
+---
+
+<!-- Source: OPIC RP13 Final Boss  IM Series 020_script.md -->
+# OPIC RP13 Final Boss | IM Series 020
+
+- **Video URL:** https://www.youtube.com/watch?v=IVv_8k_T93g
+
+## Script & Description
+
+
+---
+
+<!-- Source: Throw away your script for AL! EnglishKorean subs included!_script.md -->
+# Throw away your script for AL! English/Korean subs included!
+
+- **Video URL:** https://www.youtube.com/watch?v=jaeSCfIBIdU
+
+## Closed Captions Transcript
+
+- **[00:00]** you know what a boom Happy New Year
+- **[00:04]** everybody
+- **[00:05]** you know 2019 is the year of the pig
+- **[00:08]** which symbolizes fortune and riches so
+- **[00:11]** may all of us work hard and prosper in
+- **[00:14]** this new year and for many of us Koreans
+- **[00:17]** would be humbled cylinder huniepop
+- **[00:19]** meanders turkey Oh bigger had in hand
+- **[00:22]** Sanders had their 100 jumps under hot
+- **[00:24]** job can you tell me about the last time
+- **[00:27]** you had some free time when was it what
+- **[00:30]** did you do did you spend the time with
+- **[00:31]** someone
+- **[00:33]** okay I went to Swiss with my C's - for
+- **[00:38]** about a few months ago and it was
+- **[00:43]** freaking awesome because I got to go
+- **[00:46]** skydiving and talking about it makes me
+- **[00:51]** wanna cuddle my sister and go there
+- **[00:54]** again anyway we stayed here just for a
+- **[00:58]** few days
+- **[00:59]** and I didn't have that much time to
+- **[01:03]** travel so I had no choice but to choose
+- **[01:06]** only one activity and if only I had more
+- **[01:11]** time anyway I decided to go skydiving as
+- **[01:16]** my main activity and really do not I
+- **[01:21]** didn't feel nervous at all
+- **[01:24]** before I went skydiving but when I was a
+- **[01:29]** bad job I was like oh oh my gosh oh my
+- **[01:34]** gosh I can do this I tense and then for
+- **[01:42]** a few seconds and then when I woke up
+- **[01:44]** and I was it it was the feeling the most
+- **[01:49]** thrilling thing that I ever experienced
+- **[01:52]** and next thing you know I was on the
+- **[01:57]** ground and you know what Oh
+- **[02:01]** after Jacek test
+- **[02:04]** I shouldn't call her my my sister round
+- **[02:07]** for round two
+- **[02:09]** okay so the first half of her answer is
+- **[02:11]** actually quite good her message is very
+- **[02:13]** clear because her main point is super
+- **[02:16]** good she talks about skydiving and
+- **[02:18]** anything she says now makes that
+- **[02:20]** skydiving point bigger and bigger now
+- **[02:23]** the problem I had was with the second
+- **[02:25]** half of her answer you can see that she
+- **[02:27]** was actually focusing on trying to fix
+- **[02:29]** her grammar instead of making her
+- **[02:31]** message clear and this is the problem
+- **[02:34]** with many OPIC students torture Hannegan
+- **[02:36]** organic Jima can they object like an
+- **[02:38]** audio recording and game or synth or not
+- **[02:41]** Samira you hit her - no sir
+- **[02:42]** our children under 13 to care tonight
+- **[02:44]** now cannot watch your sister cocoon
+- **[02:45]** Tommy you're ejected it altogether
+- **[02:46]** Hanukkah
+- **[02:47]** hmm I didn't get watching okay maybe
+- **[02:50]** that wasn't the best example but never
+- **[02:52]** forget this when you are answering an
+- **[02:54]** open question you have one main goal
+- **[02:57]** Kumu choking one bill cockatoo Deborah
+- **[02:59]** Hannah get a namida but instead your
+- **[03:01]** goal is to make your message very easy
+- **[03:04]** to understand if you keep trying to fix
+- **[03:07]** your grammatical mistakes your message
+- **[03:09]** will deteriorate please do not do this
+- **[03:12]** okay I went to squeeze with my c2 for
+- **[03:18]** about a few months ago and it was
+- **[03:23]** freaking awesome because I got to go
+- **[03:26]** skydiving
+- **[03:26]** um okay she takes a moment here and then
+- **[03:30]** she continues on I like that this is a
+- **[03:32]** very good technique and then she says I
+- **[03:34]** went to Swiss Rachel meant to say I went
+- **[03:37]** to Switzerland the country itself if you
+- **[03:39]** say Swiss you're talking about things
+- **[03:42]** from Switzerland so for example swiss
+- **[03:45]** chocolates with people Swiss cheese
+- **[03:47]** Swiss Army knives whatever
+- **[03:50]** anyway she continues on I went to Swiss
+- **[03:52]** with my sister for and then she pauses
+- **[03:55]** because she's thinking about her grammar
+- **[03:57]** here but the problem is she really wants
+- **[03:59]** to say a few months ago so she realizes
+- **[04:02]** she made a mistake you cannot say for
+- **[04:03]** and then a few months ago for about a
+- **[04:06]** few months ago that's a little bit weird
+- **[04:08]** so she tries to correct herself about a
+- **[04:11]** few months ago the problem is for and
+- **[04:13]** about you know this a little bit
+- **[04:15]** confusing but she didn't try to
+- **[04:18]** correcting herself instead she moved on
+- **[04:20]** which is very good Yohe so Tashi her
+- **[04:23]** laminin for her men saw condemned a
+- **[04:25]** villain in detail later than also I went
+- **[04:27]** to Swiss with my sister for you know I
+- **[04:30]** went there about a few months ago you do
+- **[04:32]** shirahama choke em tall masazuka clear
+- **[04:35]** Hamidah anyway this is what she was
+- **[04:36]** trying to say I went to Switzerland with
+- **[04:38]** my sister about a few months ago now
+- **[04:41]** over here many students make a mistake
+- **[04:43]** because they don't show how they felt
+- **[04:45]** about it they just stop right here and
+- **[04:47]** they continue on with their answer could
+- **[04:49]** that who did new main point have they
+- **[04:50]** ought to get Hannah GI Joe as soon as
+- **[04:52]** she stayed two points explain how you
+- **[04:54]** felt about it so in this case how they
+- **[04:56]** Rachel feel she says and it was freaking
+- **[04:59]** awesome because I got to go skydiving
+- **[05:02]** she mentions how she feels
+- **[05:04]** ought to get the kiss Amica freaking
+- **[05:05]** awesome yogi freaking gonna jump
+- **[05:08]** slanging me that sore Chicka Chicka I'm
+- **[05:10]** too money sicker than you
+- **[05:11]** if this kind of slang is comfortable for
+- **[05:13]** you to use go ahead and try it
+- **[05:15]** can they come join you this on my
+- **[05:16]** birthday we're cooking dinner I'm gonna
+- **[05:18]** guess her mother had to me that yogi not
+- **[05:20]** because I got to go skydiving this main
+- **[05:23]** point has everything cricket pitch and
+- **[05:26]** checkered OPIC greater awesome young I
+- **[05:28]** know exactly what she's gonna talk about
+- **[05:30]** she's gonna be talking about her trip
+- **[05:31]** over at Switzerland and it was a very
+- **[05:33]** memorable awesome trip because she got
+- **[05:36]** to go skydiving the message here is
+- **[05:38]** super clear now ih students tend to
+- **[05:41]** focus on themselves you know I went to
+- **[05:44]** Switzerland I did this I did that which
+- **[05:46]** is very good or al you want another
+- **[05:49]** level of complexity in this case
+- **[05:51]** Rachel's talking about not just her
+- **[05:53]** going to Switzerland's but she adds
+- **[05:55]** another person into her story she says
+- **[05:57]** she went to Switzerland with her sister
+- **[06:00]** Karen said I'm tricky against you loose
+- **[06:02]** some young could t that be horse Shinto
+- **[06:04]** koga nogi so can they teach out of one
+- **[06:06]** jacket am gonna meet him at a meter I
+- **[06:08]** went to Switzerland
+- **[06:09]** alone about a few months ago you know I
+- **[06:11]** really wanted to bring my sister but
+- **[06:13]** unfortunately she couldn't make it
+- **[06:15]** anyway la blah blah for al always tried
+- **[06:18]** to add another person or group of people
+- **[06:20]** other than yourself
+- **[06:22]** that'll make the quality of your answers
+- **[06:24]** much higher and
+- **[06:26]** talking about it makes me wanna cuddle
+- **[06:29]** my sister and go there okay now look at
+- **[06:34]** this part over here woke up Chucky dog
+- **[06:36]**  man
+- **[06:37]** he expression your child's love game
+- **[06:38]** okay your mother Chanukah no more
+- **[06:40]** natural quality - um Joel lavas meter in
+- **[06:43]** the Yoruba yogi so just another noble
+- **[06:45]** sale and just talking about it makes me
+- **[06:48]** wanna go there again
+- **[06:49]** can they rachel urato me today so you
+- **[06:52]** against any gun each sentence at all -
+- **[06:54]** yeah there's a pack you'll nail makes me
+- **[06:55]** wanna call up my sister and go there
+- **[06:58]** again
+- **[06:59]** come singing history me against any gun
+- **[07:01]** charger like a moon junkie butch watch
+- **[07:03]** us meet her anyway we stayed here just
+- **[07:06]** for a few days and I didn't have that
+- **[07:09]** much time to travel so I had no choice
+- **[07:13]** but to choose a new one activity and if
+- **[07:18]** only I had more time anyway we stayed
+- **[07:22]** there just for a few days the UH here is
+- **[07:25]** actually very important but notice how
+- **[07:26]** she used the word just here very very
+- **[07:28]** good her sentence is more specific and
+- **[07:30]** detailed this way
+- **[07:32]** Canaan Jay main point in the sky diving
+- **[07:34]** in again caliente skydiving jogger
+- **[07:36]** cogwheel Sameera yoga Talmud Jung a
+- **[07:38]** permanent and I didn't have that much
+- **[07:39]** time to travel scanty money off so -
+- **[07:42]** Yogi's in cheek has a focus Hammond
+- **[07:44]** skydiving children can go Joe so I had
+- **[07:47]** no choice but to choose only one
+- **[07:49]** activity main pointing a normal clear a
+- **[07:52]** category one activity come on ginger I
+- **[07:54]** see John skydiving and if only I had
+- **[07:57]** more time Chinese a yogi television if
+- **[08:00]** if further assert their mother creative
+- **[08:02]** dear Tsubaki observe sconnie John tall
+- **[08:04]** assassin young it really adds a higher
+- **[08:07]** level of complexity into your answers it
+- **[08:09]** makes it way more sophisticated and yet
+- **[08:12]** simple at the same time if you really
+- **[08:14]** want the AL mark really practice using
+- **[08:17]** the word if in this case she used if
+- **[08:19]** only I had more free time the words if
+- **[08:21]** only is also a very great expression for
+- **[08:24]** you to practice in using anyway I
+- **[08:26]** decided go skydiving
+- **[08:29]** as my main activity and believe it or
+- **[08:32]** not I didn't feel nervous at all before
+- **[08:37]** I went skydiving but when I was a budget
+- **[08:43]** job I was like oh my gosh oh my gosh I
+- **[08:47]** can do this I can't anyway I decided to
+- **[08:51]** go skydiving as my main activity now she
+- **[08:54]** gets into the meat of her answer
+- **[08:56]** skydiving but notice it took her a bit
+- **[08:59]** of time to finally get there but not in
+- **[09:01]** an awkward way it was actually quite
+- **[09:02]** natural and she's only talking about one
+- **[09:05]** thing
+- **[09:06]** skydiving I don't think it ought to get
+- **[09:07]** mika skydiving it is so yeah it has to
+- **[09:10]** do economic capture get to do day so the
+- **[09:12]** matter how cool Konami books her under
+- **[09:14]** there's no matter how cool and then they
+- **[09:15]** continue on by talking about the land in
+- **[09:17]** the mountains and the skyscrapers and
+- **[09:19]** the clouds and whatever here bananas
+- **[09:21]** occupy maracuja Puna kakou focus ketchup
+- **[09:24]** shaggy saudi-american a Rachel on a
+- **[09:26]** Hongwanji a case of murder Susan Egan
+- **[09:28]** who scared the air Potter Tsubaki
+- **[09:30]** I'm not scared Amita could we go talk
+- **[09:32]** hello yogi pomian
+- **[09:33]** Rachel does a really excellent job in
+- **[09:36]** expressing how she felt instead of just
+- **[09:38]** talking about what she did my under
+- **[09:41]** Huck's England they got Mohini as her
+- **[09:43]** meager google her head Seneca they
+- **[09:44]** got together
+- **[09:46]** mine is harmony another degree when you
+- **[09:47]** are learning a new language being able
+- **[09:50]** to elaborate on your feelings is the
+- **[09:53]** best way to increase your language
+- **[09:55]** speaking ability it's a very personal
+- **[09:57]** way to communicate and also it is a lot
+- **[10:00]** easier to understand now let's take a
+- **[10:02]** look at this next part and believe it or
+- **[10:04]** not a very excellent expression to use
+- **[10:07]** especially when something is out of the
+- **[10:09]** ordinary and believe it or not I didn't
+- **[10:11]** feel nervous at all before I went
+- **[10:14]** skydiving Hanuman came though nervous an
+- **[10:17]** attack at all no manometer Smita in the
+- **[10:19]** Manny Hangul 17 at or Haggadah near or
+- **[10:21]** the Anita all emitter at all I didn't
+- **[10:24]** feel nervous at all but when I was about
+- **[10:26]** to jump even continent deteriorated in
+- **[10:29]** watch her on a good job Hannah soon
+- **[10:31]** Ghana to jump Jonny no one over to
+- **[10:34]** Smee that doggy in Jake rotation or such
+- **[10:35]** oh I was like
+- **[10:37]** my gosh oh my gosh I can't do this I
+- **[10:40]** can't we should know by now that when
+- **[10:42]** you're answering a past experience
+- **[10:44]** question if you add a direct quotation
+- **[10:47]** it really makes your answer dynamic and
+- **[10:49]** at the same time shows your grammar
+- **[10:51]** skill you are using past tense and then
+- **[10:54]** when you're adding a direct quotation
+- **[10:56]** you're using present tense but without
+- **[10:58]** making a mistake never forget the power
+- **[11:01]** of direct quotations for a few seconds
+- **[11:08]** and then when I woke up and I was if it
+- **[11:13]** was the feeling thing a most thrilling
+- **[11:15]** thing that I ever experienced and then I
+- **[11:20]** think I passed out this is another very
+- **[11:22]** great detail because as she was falling
+- **[11:25]** she expresses that just for a few
+- **[11:27]** seconds cap chuck-e-cheese other head
+- **[11:28]** dunk and a yogi town Goodwin n this was
+- **[11:30]** probably the worst part of her answer
+- **[11:32]** because she tries to self-correct
+- **[11:34]** herself way too many times in her mind
+- **[11:37]** she's trying to do a better job and
+- **[11:39]** tries to make the message clearer but we
+- **[11:42]** asked the listeners we are actually
+- **[11:44]** getting way more confused because with
+- **[11:46]** all the self-correcting the message
+- **[11:48]** becomes a little bit weaker broken
+- **[11:50]** unclear so in this case if you make a
+- **[11:53]** mistake just use a filler and continue
+- **[11:55]** on and make sure that the message is not
+- **[11:57]** broken okay so something like this and
+- **[12:00]** then when I woke up and I was okay yoga
+- **[12:02]** tell yourself okay so Jeff Euler's high
+- **[12:04]** Lamas are okay you know when I woke up I
+- **[12:07]** lost all my fear and I thought it was
+- **[12:10]** the most thrilling thing that I've ever
+- **[12:13]** experienced and then next thing you know
+- **[12:16]** I was underground no you know what Oh
+- **[12:21]** after disick test I think I shouldn't
+- **[12:25]** call them up my sister round for long -
+- **[12:29]** and the next thing you know I was on the
+- **[12:31]** ground this is a very awesome idiom to
+- **[12:34]** use but I would definitely use the word
+- **[12:36]** thought just to make it a little bit
+- **[12:37]** more accurate the next thing you know I
+- **[12:39]** was on the ground up Chuckie you could
+- **[12:42]** hit that excellent excellent expression
+- **[12:44]** and um you know what yogini NJ Rachel
+- **[12:46]** Carson Carson Alex
+- **[12:47]** kanabi yogi Tom Boonen they get wrong
+- **[12:50]** idea Amita but again she was a little
+- **[12:52]** too focused on using perfect grammar and
+- **[12:55]** because of that the message became a
+- **[12:58]** little bit weaker now this is what she
+- **[12:59]** was trying to say Oh
+- **[13:01]** after this test I think I should call it
+- **[13:03]** my sister for round two this is no doubt
+- **[13:06]** an amazing conclusion but because Rachel
+- **[13:08]** had a little bit of a slip-up she
+- **[13:10]** focused too much on self correction
+- **[13:12]** again use a filler and continue on Oh
+- **[13:15]** after this test I think I should call up
+- **[13:18]** my my my sister okay I should call up my
+- **[13:21]** sister and you know go for round two
+- **[13:23]** Karrueche guru hominin her message she
+- **[13:25]** got Peggy ship catalyst ooh is Samira
+- **[13:27]** this is okay no Jan is a in charge of
+- **[13:31]** Kundalini boo Yong hundred her only
+- **[13:33]** daughter girl hip again a few months ago
+- **[13:52]** and it was freaking awesome because well
+- **[13:56]** you know I got to go skydiving and just
+- **[14:00]** talking about it makes me want to call
+- **[14:02]** up my sister and go there again okay
+- **[14:06]** anyway we stayed there just for a few
+- **[14:08]** days and I didn't have that much time to
+- **[14:12]** travel and so I had no choice but to
+- **[14:15]** choose only one activity oh if only I
+- **[14:19]** had more time anyway I decided to go
+- **[14:22]** skydiving as my main activity and
+- **[14:25]** believe it or not I didn't feel nervous
+- **[14:29]** at all before I went skydiving but um
+- **[14:32]** when I was just about to jump I was like
+- **[14:35]** oh my gosh I can't do this I can't and
+- **[14:40]** then I think I passed out of for a few
+- **[14:44]** seconds but then when I woke up I lost
+- **[14:48]** all my fear and I thought it was the
+- **[14:51]** most thrilling thing that I've ever
+- **[14:53]** experienced and the next thing you know
+- **[14:57]** I was on the ground
+- **[14:58]** and you know what after this test I
+- **[15:02]** think I should definitely call it my
+- **[15:04]** sister for round two
+
+
+---
+
+<!-- Source: What is the true difference between IH and AL on the OPIc test_script.md -->
+# What is the true difference between IH and AL on the OPIc test?
+
+- **Video URL:** https://www.youtube.com/watch?v=AiEzJGrP6rA
+
+## Script & Description
+
+
+---
+
+<!-- Source: What's the difference between IH and AL on the OPIc test Weather combo set._script.md -->
+# What's the difference between IH and AL on the OPIc test? Weather combo set.
+
+- **Video URL:** https://www.youtube.com/watch?v=bkbI39plph0
+
+## Closed Captions Transcript
+
+- **[00:00]** Come here to turn your English from ZERO to HERO!  영어의 0도 몰르면 1로와!
+- **[00:02]** Boomers! 여러분!
+- **[00:03]** In this video, I will show you  이번 영상에서는,
+- **[00:04]** the differences between IH and AL.  IH와 AL의 차이점에 대해 보여줄건데요.
+- **[00:07]** We will take a look at how AL is so different from IH.  IH와 AL이 어떻게 다른지 볼거에요. 
+- **[00:12]** By answering a full combo set about weather.  날씨 콤보세트 대답으로 살펴보겠습니다.
+- **[00:14]** We will analyze 3 answers from 3 different students.  세 학생의 3가지 답변을 분석할거에요.
+- **[00:18]** This video will focus on the first student. 이 영상은 첫 번째 학생입니다.
+- **[00:21]** And if you like this type of feedback video... 이 피드백 영상이 좋다면...
+- **[00:23]** 500 likes  좋아요 500개가 되면 
+- **[00:25]** will unlock the 2nd video of this combo set.  이 콤보세트 두번째 영상을 올리겠습니다.
+- **[00:28]** So whatchu waitin' for?! 니 뭐하소?!
+- **[00:29]** Smash that like button! 좋아요 눌러주소!
+- **[00:31]** One of my favorite topics is weather. 날씨는 제가 좋아하는 주제인데요.
+- **[00:33]** Not only is it great for OPIc... 오픽에서 뿐만 아니라...
+- **[00:35]** But it's also a great topic for you to practice.  그냥 연습하기에도 좋은 주제입니다.
+- **[00:38]** Especially when you wanna get better with small talk. 특히 간단한 대화를 더 잘하고 싶을 때 좋아요.
+- **[00:40]** When I first came to Korea, I went on an elevator.  제가 한국에 처음왔을 때, 엘리베이터를 탔어요.
+- **[00:43]** And there was a lady there.  거기서 어떤 아줌마가 있었는데.
+- **[00:45]** Now, in Canada, elevators can be quite awkward.  원래 캐나다는 엘리베이터 상황에 너무 어색하거든요.
+- **[00:49]** And so, to break that awkwardess,  we engage in small talk. 그러니까, 우리 대화해요,
+- **[00:51]** And the easiest way to do this is to talk about weather. 거의 날씨에 대해서 이야기 하던지.
+- **[00:52]** Kind of like this:  아무튼 이런식으로:
+- **[00:53]** Oh, it's getting pretty hot today, eh?  오, 점 점 더워지네요.
+- **[00:55]** And so, this is what I said to her.  근데, 그 아줌마한테 제가 이렇게 말했어요.
+- **[00:57]** I also wanted to practice more Korean.  아무튼 저는 한국말을 좀 더 배우고 싶으니까.
+- **[00:59]** Wow, such gorgeous weather today, right?  참, 오늘 날씨가 풀리네요?
+- **[01:01]** As soon as I said that, she was like:  이렇게 했는데, 그 아줌마가 저한테:
+- **[01:03]** "Who in the world is this crazy dude?!"  "이 미친놈이 누구노?!"
+- **[01:04]** She looked at as if she actually said that. 이렇게 쳐다 보더라구요.
+- **[01:06]** I was totally shocked out of my mind.  깜짝 놀랐습니다.
+- **[01:07]** That is when I realized ... 저는 그때 알았어요...
+- **[01:08]** Koreans do not like to talk with strangers. 한국사람들은 낯선사람과 이야기하는걸 싫어하는 구나.
+- **[01:11]** And I cannot blame them. 비난하는게 아니네요.
+- **[01:12]** I understand why.  왜 그러는지 이해해요.
+- **[01:13]** But it is not something that I'm used to.  단지 제게 익숙하지 않았을 뿐이에요.
+- **[01:15]** Anyway, I think small talk is a type of skill.  무튼, 간단한 대화도 기술이에요.
+- **[01:18]** That is useful everywhere.  어느곳에서든 유용하죠.
+- **[01:20]** And if you really wanna get better at it,  그리고 이런 사소한 대화를 더 잘하고 싶다면,
+- **[01:21]** Weather is a topic that you should definitely master. 날씨가 여러분이 마스터해야 하는 중요한 주제입니다.
+- **[01:24]** If you've taken the test many times,  시험을 여러번 봤는데,
+- **[01:26]** And still cannot get AL, 아직도 AL을 못 받았다면,
+- **[01:28]** Then this video is for you.  이 영상이 많은 도움이 될겁니다.
+- **[01:30]** And also, if you are an IM1/2/3 student, 또, IM1/2/3 학생인데,
+- **[01:35]** And still can't seem to get IH no matter what you do,  아직도 IH를 못 받았다면,
+- **[01:38]** Then this video will definitely help you get that IH mark. 이 영상이 IH를 받을 수 있게 도와줄거에요.
+- **[01:41]** And before we listen to how they answer. 학생들의 대답을 듣기 전에.
+- **[01:43]** I want to explain why the look of my subtitles have changed. 여기 자막에 대해서 약간 설명하고 싶어요.
+- **[01:46]** The style of my subtitles have changed, right? 여기 자막이 생긴게 약간 달라졌죠.
+- **[01:48]** I noticed some students wanted  to improve their listening ability. 어떤 학생들은 듣는거에 대해서 더  연습하고 싶으니까
+- **[01:52]** That's why they told me they preferred videos  without subtitles.  자막이 없는게 좋다고 얘기 했어요.
+- **[01:54]** And of course there were other students...  근데 또 어떤 학생들은...
+- **[01:55]** ...who told me they totally depended on subtitles.  ...자막이 되게 필요하다 이렇게 얘기 하니까.
+- **[01:58]** So I tried to think of a way to make both parties happy. 제가 어떻게 하면 두 학생을  행복하게 할 수 있는 방법이 있는지 생각해 봤더니.
+- **[02:03]** This is how I discovered this method of adding subtitles. 이 방법으로 발견했어요.
+- **[02:05]** If you want it, you can simply turn it on.  원하시면, 그냥 "on"해도 되고.
+- **[02:07]** But if you want to practice more listening skills, 영어 듣는거에 대해서 더 연습하고 싶으면은,
+- **[02:09]** You can simply turn it off.  "off"해도 되고.
+- **[02:10]** Now that you have this option,  이제는 그 옵션이 있으니까,
+- **[02:11]** Do whatever that suits you. 여러분에게 맞는 걸로 해주세요.
+- **[02:13]** Alright, let's get it, LEGO!
+- **[02:15]** Weather in Korea...  한국날씨...
+- **[02:16]** Alright, what I like about how this student started... 이 학생은 시작이 너무 좋아요...
+- **[02:18]** ..is that she's using the words in the question. ...질문에 있는 단어를 사용했는데요.
+- **[02:21]** As she's thinking about what she's gonna say next. 그러면서 다음에 말 할 내용을 생각하고 있어요.
+- **[02:24]** Weather in Korea...  한국 날씨...
+- **[02:25]** Now, as she's doing this,  이 학생은 이렇게 하면서,
+- **[02:27]** She goes right to the next sentence almost immediately. 거의 바로 다음 문장을 말해요.
+- **[02:30]** This is actually a very natural thing to do. 너무 자연스러운데요.
+- **[02:32]** You know, I watched the news this morning. 오늘 아침에 뉴스를 봤어요.
+- **[02:34]** Now, take a look at this strategy. 자, 여기 전략을 한번 봐보세요.
+- **[02:36]** Even though this is not question #15,  15번 질문은 아니지만,
+- **[02:38]** She still uses "news" to answer this question.  대답 할 때 "뉴스" 단어를 사용했어요.
+- **[02:42]** And look how natural this sounds.  그리고 얼마나 자연스러운지 봐보세요.
+- **[02:44]** I watched the news this morning.  나는 오늘 아침에 뉴스를 봤다.
+- **[02:46]** This sentence really makes her sound... 이 문장은 이 학생이 ...
+- **[02:48]** ...like she's actually thinking on the spot.  ... 그 자리에서 바로 생각하고 있는것 처럼 보여줘요.
+- **[02:50]** And now, it really seems like ... 그리고, 이제...
+- **[02:52]** ...she's just sharing what she saw on the news.  ...그 뉴스를 우리에게 말해줄것 처럼 보여요.
+- **[02:55]** The funny thing is if this was question #15, 만약 진짜 15번 문제 였다면,
+- **[02:58]** She can pretty much say the exact same answer. 똑같은 대답을 해도 되요.
+- **[03:00]** It's a pretty good strategy.  정말 좋은 전략이에요.
+- **[03:01]** It said we have tons of fine dust in the air. 뉴스에서 미세먼지가 엄청 많데요.
+- **[03:07]** Now, this sentence over here:  자, 여기 문장을 봐보세요:
+- **[03:08]** It said we have tons of fine dust in the air.  뉴스에서 미세먼지가 엄청 많데요.
+- **[03:12]** Tons of fine dust...
+- **[03:13]** It is a pretty good sentence. 좋은 문장이에요.
+- **[03:15]** But I feel like it's kind of in the IH level.  하지만 이건 IH 수준이이에요.
+- **[03:18]** Now, if you want to push this to AL,  만약 AL을 받고 싶다면,
+- **[03:20]** You could say something like this: 이렇게 말하면 됩니다:
+- **[03:21]** We have a serious fine dust problem.  우리는 심각한 미세먼지 문제가 있어요.
+- **[03:24]** And now, let's take a look at this sentence:  그리고 여기 이 문장 보세요:
+- **[03:25]** We are starting to have a serious fine dust issue.  우리는 심각한 미세먼지 문제가 시작되고 있다.
+- **[03:29]** Starting to have is an excellent expression. "Starting to have~"는 굉장히 좋은 표현입니다.
+- **[03:31]** To give a little more detail ... 여러분의 문장을 더 자세히...
+- **[03:33]** and accuracy in your sentences. ...그리고 더 정확하게 만들어 줄거에요.
+- **[03:35]** And it really makes you sound natural. 그리고 원어민 처럼 드릴겁니다.
+- **[03:37]** And if you're able to constantly talk like this, 이렇게 끊임없이 말 할 수 있다면,
+- **[03:40]** Then your English level is definitely more than AL.  여러분의 영어 수준은 당연히 AL 이상일거에요.
+- **[03:43]** So, I'll indicate it here as AL+. 그래서 저는 여기 AL+라고 써놨어요.
+- **[03:45]** Now, notice how this student is  constantly talk about her feelings.  자, 여기 학생이 감정을 어떻게 계속 말하는지 봐보세요.
+- **[03:50]** This is just a disaster. 이건 재앙이에요.
+- **[03:52]** This is just a disaster.  이건 재앙이에요.
+- **[03:54]** Disaster / tragedy / terrible
+- **[03:57]** All very great words to use here.  모두다 사용하기 좋은 단어에요.
+- **[03:59]** And then now she's starting to involve Ava a little bit.  그리고 지금 Ava를 끌어들이고 있어요.
+- **[04:02]** Can you imagine? 상상 할  수 있나요?
+- **[04:03]** How can I live with this much fine dust?  어떻게 이렇게 많은 미세먼지 속에서 살 수 있을까요?
+- **[04:07]** Can you imagine? 상상 할  수 있나요?
+- **[04:08]** A very nice rhetorical question.  정말 좋은 수사적인 질문이에요.
+- **[04:10]** And then now,  그리고,
+- **[04:11]** ...even though she was talking about the news... ...뉴스에 대해 말했지만,
+- **[04:13]** ...She's transitioning that to her experience. 그걸 본인 경험으로 자연스럽게 넘어가고 있어요.
+- **[04:15]** How can I live with this much fine dust?  어떻게 이렇게 많은 미세먼지 속에서 살 수 있을까요?
+- **[04:19]** Now, this sentence is also very IH. 이 문장도 IH 입니다.
+- **[04:21]** And if you wanna make it a little bit better,  더 좋게 말하고 싶다면,
+- **[04:23]** I would say something like this: 이렇게 하면 됩니다:
+- **[04:24]** How am I supposed to live with this much fine dust? 이렇게 많은 미세먼지속에서 어떻게 살아야 하나?
+- **[04:27]** Now, considering this is a comparison question,  이건 "비교 질문"이라는걸  생각해보면,
+- **[04:30]** This student over here does a very beautiful job... 이 학생은 너무 잘하고 있습니다...
+- **[04:33]** ...in giving us a very nice PURE PRESENT MP.  완전한 현재형 요점으로 말하고 있죠.
+- **[04:36]** She's talking about a current weather issue.  이 학생은 현재 날씨 문제에 대해 말하고 있어요.
+- **[04:39]** Specifically about fine dust.  특히 미세먼지.
+- **[04:41]** And because of that,  그리고 이것 때문에,
+- **[04:42]** she explains how she does not like it.  왜 싫어하는지 설명해줘요.
+- **[04:44]** Crystal clear!  깔끔해요!
+- **[04:45]** And now, she's gonna go right to the past:  그리고 이제, 과거로 바로 넘어갑니다:
+- **[04:47]** You know, in the past, I think even... 과거에는...
+- **[04:49]** 3 years ago, it wasn't like that. 3년 전엔, 이정돈 아니었어요.
+- **[04:52]** You know, in the past, I think even... 과거에는...
+- **[04:54]** 3 years ago, it wasn't like that. 3년 전엔, 이정돈 아니었어요.
+- **[04:56]** Automatic contrast here. 자동적으로 대조가 되요.
+- **[04:58]** Very, very good. 
+- **[04:59]** You know, sometimes these comparison questions... 때때로 이런 비교 질문들을...
+- **[05:01]** ...they ask you, ...물어봐요.
+- **[05:02]** "Hey, you know...
+- **[05:02]** ...identify the similarities or the differences." "유사점이나 차이점을 찾으세요."
+- **[05:05]** But you know, you don't need to use those words. 하지만 이런 단어를 사용할 필요는 없어요.
+- **[05:07]** Right?
+- **[05:08]** You don't need to be like, 이럴 필요는 없습니다,
+- **[05:08]** "Ok, the similarities are this."  "네, 유사점이란 이겁니다."
+- **[05:10]** "And the differences are that."  "그리고 차이점은 이겁니다."
+- **[05:12]** That's way too rigid.  완전 뻣뻣해요.
+- **[05:13]** In this case, everything is assumed.  여기에서는, 모든것이 가정되는 거에요.
+- **[05:15]** And even though you don't use those words: 우리는 이런 단어를 쓸 필요는 없어요:
+- **[05:17]** "Similar" or "Different" 
+- **[05:19]** You still naturally show contrast here. 여러분은 자연스럽게 대조를 보여주는 거죠.
+- **[05:22]** Through this strategy.  이 전략으로.
+- **[05:23]** Through this structure. 이 구조로.
+- **[05:24]** Of starting with PURE PRESENT... 완전 현재형으로 시작해서...
+- **[05:26]** ...and now going right to the PAST. ...그리고 바로 과거형으로 마무리한다.
+- **[05:27]** Excellent job. 
+- **[05:28]** Basically, we won't worry about air condition thing.  기본적으로, 우리는 공기상태를 걱정할거에요.
+- **[05:33]** And then she says: 이렇게 말했어요:
+- **[05:34]** Basically, we won't worry about air condition thing. 기본적으로, 우리는 공기상태를 걱정할거에요.
+- **[05:37]** Ok now, here, lots of mistakes. 실수가 많았어요.
+- **[05:39]** Because she's talking about the past,  과거에 대해 말하고 있었기 때문에,
+- **[05:41]** We cannot say, "We won't worry".  "우리는 걱정 할 거에요." 라고 하면 안 돼요.
+- **[05:43]** Here, we have to change it to. 여기, 바꿔야 합니다.
+- **[05:44]** "We didn't have to worry." "우리는 걱정할 필요가 없었어요."
+- **[05:46]** Now, take a look here. 자, 이제 여기를 봐보세요.
+- **[05:47]** Air condition... uh, the condition of the air.  공기상태...
+- **[05:50]** It's kind of confusing . 헷갈려요.
+- **[05:51]** Because it really sounds like... 왜냐면...
+- **[05:52]** she's talking about some sort of air conditioner. 에어컨에 대해 말하는 것 처럼 들려요.
+- **[05:54]** Or simply AC.  간단히 AC.
+- **[05:56]** Personally, I would change this to "air quality".  개인적으로는, "air quality"라고 하는게 좋겠어요.
+- **[05:58]** I recommend something like this:  그래서 이렇게 하는걸 추천 합니다:
+- **[06:00]** We never really had to worry about air quality. 우리는 공기 질에 대해 걱정할 필요가 없었어요.
+- **[06:02]** Very AL.
+- **[06:04]** And, of course, if you want to improve your language a little more, 그리고 물론, 더 향상된 걸 원하신 다면
+- **[06:06]** Don't just stop there, but try to go a bit further. 거기서 멈추지 말고, 더 발전시켜 주세요.
+- **[06:10]** To further confirm what you are saying. 여러분이 말한것을 확실하게 해주세요.
+- **[06:11]** We went outside pretty much worry-free.  우리는 걱정없이 밖에 나갔어요.
+- **[06:14]** I'm saying exactly what I said,  제가 말한 것을 정확히 말했어요
+- **[06:15]** But with a little more UMPH!
+- **[06:17]** Notice here, I'm using the same word: worry. 저는 같은 단어를 사용했어요: worry.
+- **[06:19]** But I'm using it in a different way. 하지만 다른 방법으로 사용했죠.
+- **[06:21]** It's especially effective if you say it in one sentence. 한 문장에서 말한다면 정말 효과적일 거에요.
+- **[06:24]** And on the next sentence,  그리고 다음 문장에서,
+- **[06:25]** You're able to use the same word in a different way.  같은 단어를 다른 방법으로 사용할 수 있죠.
+- **[06:28]** That kind of style is a 100% AL+.  이 스타일이 바로 AL+ 입니다.
+- **[06:31]** And now, the student goes on.  그리고 이 학생은 계속 말합니다.
+- **[06:33]** And we were able to do anything outside.  그리고 우리는 밖에서 어떤것도 할 수있었어요.
+- **[06:36]** And we were able to do anything outside.  그리고 우리는 밖에서 어떤것도 할 수 있었어요.
+- **[06:39]** I know what she's trying to say.  이 학생이 무슨말을 하려는지는 알겠어요.
+- **[06:41]** But in my honest opinion, it's not clear enough here. 하지만 충분히 명확하지 않아요.
+- **[06:44]** I would say this is about IM2. IM2 입니다.
+- **[06:45]** So let's try something like this.  그래서 이렇게 한번 해봅시다.
+- **[06:47]** And we were able to freely go outside  그리고 우리는 밖으로 자유롭게 나갈수 있었어요.
+- **[06:49]** without having to wear a mask. 마스크 없이.
+- **[06:52]** Here, I'm still talking about fine dust. 여기서, 전 미세먼지에 대해 아직 이야기 하고 있어요.
+- **[06:54]** But in a different way.  하지만 다른 방법으로요.
+- **[06:55]** By mentioning mask, 마스크를 언급하면서,
+- **[06:56]** I'm still making my message very clear. 메세지를 명확하게 하고 있어요.
+- **[06:58]** By talking about the same thing.  같은것에 대해 이야기 하고 있죠.
+- **[07:00]** And yet, in a very skillful way.  하지만, 기술적인 방법으로.
+- **[07:02]** But over here, the one thing that this student is missing... 하지만 여기서, 이 학생이 한 가지 놓친건...
+- **[07:05]** is emphasizing her FEELING.  ...감정이에요.
+- **[07:07]** Ok, so she's mentioning all these things.  이 학생은 모든 것에 대해 말했어요.
+- **[07:09]** And how does she feel about it? 그리고 어떻게 느꼈나요?
+- **[07:11]** So, I would add something like,  그래서 첨가하면 이렇게 됩니다,
+- **[07:12]** "Oh, and this was just amazing."  "오, 그리고 완전 놀라웠어요."
+- **[07:14]** Something like that. 
+- **[07:15]** Now, she goes right to the present.  이제, 이 학생은 현재로 넘어가고 있어요.
+- **[07:17]** But these days, basically, we can't do anything outside. 하지만 요즘엔, 우린 밖에서 아무것도 할 수 없어요.
+- **[07:21]** But these days, basically, we can't do anything outside. 하지만 요즘엔, 우린 밖에서 아무것도 할 수 없어요.
+- **[07:24]** Again, here, a little more detail is necessary.  다시, 여기는, 좀더 디테일한게 필요해요.
+- **[07:27]** So, something like this: 이렇게요:
+- **[07:28]** "... without having to worry about fine dust."  "...미세먼지 걱정없이."
+- **[07:31]** We just, you know, if you just stand outside... 우리가 밖에 서있는 다면...
+- **[07:35]** ...for only a few minutes... ...몇 분만...
+- **[07:36]** ...you can feel all the dust in your mouth. ...입에서 먼지를 느낄수 있어요. 
+- **[07:39]** "We just"... and then she realizes... "We just"... 그리고 깨달아요...
+- **[07:41]** OMG, she needs to restart and try again. 그리고 다시 시작해야하죠.
+- **[07:43]** So what did she do? 그래서 어떻게 했나요?
+- **[07:44]** She uses a filler here: YOU KNOW... 필러를 사용했습니다: YOU KNOW...
+- **[07:46]**  And then tries again.  그리고 다시 말해요.
+- **[07:48]** Very clear. 너무 깔끔해요.
+- **[07:49]** If you must self-correct yourself, this is the way to do it. 만약 틀리면, 이렇게 하시면 됩니다.
+- **[07:52]** And so, now, she tries again:  그래서, 이 학생은 다시 합니다:
+- **[07:54]** "If you just stand outside for only a few minutes..." "몇 분만 밖에 서있으면..."
+- **[07:57]** And I love this word "only" here btw  그리고 "only" 이 단어
+- **[07:59]** Because it adds a very subtle detail to your sentence. 이 단어를 넣어서 문장이 더 미묘하게 디데일 해졌어요.
+- **[08:02]** And she ends it by saying:  그리고 이렇게 끝내요:
+- **[08:03]** "You can feel all the dust in your mouth."  "입에서 먼지를 느낄수 있어요."
+- **[08:06]** I don't know about the mouth... 입... 잘 모르겠어요...
+- **[08:08]** Maybe more, your lungs, right? 아마 폐가 더 맞을거 같아요.
+- **[08:10]** So you can say something like, 이렇게 말할수 있어요:
+- **[08:11]** "You can sort of feel the dust  accumulating in your lungs."  "폐에 먼지가 쌓이는걸 느낄수 있어요."
+- **[08:14]** But now, look at what the student does here.  하지만, 이 학생이 한 걸 보세요.
+- **[08:16]** This is just awful.  완전 끔찍해요.
+- **[08:18]** This is just awful. 완전 끔찍해요.
+- **[08:20]** Yes! She's keeping it feeling-focused here! 드디어! 감정에 집중을 하고 있네요!
+- **[08:22]** And a great word, btw: AWFUL.  그리고 여기 중요한 단어: AWFUL.
+- **[08:24]** And she doesn't only say the word "awful". 그냥 "awful"만 말하지 않았어요.
+- **[08:26]** She says, "Just awful". "Just awful." 이렇게 말했죠.
+- **[08:28]** I always tell you guys... 제가 항상 말하죠...
+- **[08:29]** This word "just" is a very AL word. 이 단어 "just" AL  단어에요.
+- **[08:31]** And then her conclusion: 그리고 결론을 내요:
+- **[08:32]** "And, I don't know if this will be better or not..." "이게 더 좋아질지 아닐지 모르겠어요..."
+- **[08:36]** "But hopefully this will be handled very soon."  "하지만 바라건데 곧  잘 처리되길 바라요."
+- **[08:41]** "And, I don't know if this will be better or not..." "이게 더 좋아질지 아닐지 모르겠어요..."
+- **[08:44]** "But hopefully this will be handled very soon."  "하지만 바라건데 곧  잘 처리되길 바라요."
+- **[08:46]** Ok so: "I don't know if this will get better or not."  "이게 더 좋아질지 아닐지 모르겠어요..."
+- **[08:49]** And also the word usage here: HANDLED. 이 단어를 썼는데요: HANDLED.
+- **[08:51]** Hmm, maybe "resolve" could be better. "resolve"라고 하는게 더 나을거 같아요.
+- **[08:53]** But you know, this kind of conclusion... 하지만, 이런 결론은...
+- **[08:54]** Is a very general way of concluding things. 너무 일반적인 결론방법이에요.
+- **[08:57]** And, you know, it's not bad.  나쁜건 아니에요.
+- **[08:59]** But if you want to be a little more unique... 하지만 좀 더 독특하고...
+- **[09:00]** And really boost your chances of  getting the highest mark possible... 더 높은 점수를 받을 기회를 올리고 싶다면...
+- **[09:04]** Then try to add a little bit of humor if you can.  할수만 있다면 약간 유머를 추가해 보세요.
+- **[09:07]** Take a look at this kind of concept.  이 컨셉을 보세요.
+- **[09:09]** "And you know what?"
+- **[09:09]** "I'm really just getting sick and tired  of wearing masks all the time." "항상 마스크 쓰는거 질렸어."
+- **[09:14]** "If this keeps up, I'm gonna be forced  to move out of this country." "이게 지속된다면, 나 이 나라를 떠날래."
+- **[09:17]** If you could make the OPIc grader laugh... 여러분이 채점자를 웃긴다면...
+- **[09:19]** Or even smile... 웃음짓게만 해도...
+- **[09:20]** I guarantee you will smile as well... 여러분도 똑같이 웃을 수있을 거에요...
+- **[09:23]** When you get your OPIc grade!  여러분이 오픽 점수를 받을 때!
+
+
+---
+
+<!-- Source: 계속 오픽 IH만 받는 학생 단점 찾아보기!  오픽 11 가이드 012_script.md -->
+# 계속 오픽 IH만 받는 학생 단점 찾아보기! | 오픽 1:1 가이드 012
+
+- **Video URL:** https://www.youtube.com/watch?v=Du1991kKS3M
+
+## Script & Description
+
+
+---
+
+<!-- Source: 노잼 얘기를 듣기 좋게 깔끔하게 만드는 방법  AL 시리즈 학생편 003_script.md -->
+# 노잼 얘기를 듣기 좋게 깔끔하게 만드는 방법 | AL 시리즈 학생편 003
+
+- **Video URL:** https://www.youtube.com/watch?v=kSYsKG7Ie1g
+
+## Script & Description
+
+
+---
+
+<!-- Source: 불가능! 하지만 오픽 habit 질문의 대답들이 입에서 슉슉 나오게 만들어줄게요! ㅣ IM 시리즈 008_script.md -->
+# 불가능! 하지만 오픽 habit 질문의 대답들이 입에서 슉슉 나오게 만들어줄게요! ㅣ IM 시리즈 008
+
+- **Video URL:** https://www.youtube.com/watch?v=GUH-sy1aoFo
+
+## Script & Description
+
+
+---
+
+<!-- Source: 비교 질문 답변은 어떻게 할까요  AL 시리즈 학생편 006_script.md -->
+# 비교 질문 답변은 어떻게 할까요? | AL 시리즈 학생편 006
+
+- **Video URL:** https://www.youtube.com/watch?v=PI2FFtUS-oM
+
+## Closed Captions Transcript
+
+- **[00:00]** we're young do we know you know I think
+- **[00:02]** about what you did during your free time
+- **[00:04]** as a child
+- **[00:05]** do you have more free time now than when
+- **[00:07]** you were a child
+- **[00:08]** tell me about your free time now
+- **[00:10]** compared to when you were a child
+- **[00:12]** you're a boom I've recently had some
+- **[00:14]** legal issues that I had to deal with and
+- **[00:16]** I'm pretty sure some of you have noticed
+- **[00:19]** that I've taken down some videos six
+- **[00:21]** videos actually I apologize because I
+- **[00:24]** know some of you really liked those
+- **[00:25]** videos but leave you me I promise you I
+- **[00:29]** will remake those videos and make it
+- **[00:31]** even better and I will try to re-upload
+- **[00:33]** them ASAP
+- **[00:35]** anyway let's now focus on Rachel um all
+- **[00:38]** right I think I didn't do anything much
+- **[00:42]** when I was child during my free time and
+- **[00:46]** at the time I really liked to stay at
+- **[00:49]** home and relax and my mom was usually
+- **[00:53]** like wait till did you do your homework
+- **[00:55]** or wait till clean your room whenever I
+- **[00:59]** had my free time
+- **[01:01]** she always nagging me to do something
+- **[01:04]** more productive and I found this so
+- **[01:09]** annoying
+- **[01:10]** and I never understood why she wouldn't
+- **[01:14]** let me fear for now I had more freedom
+- **[01:18]** from my mom in the whenever I had my
+- **[01:22]** free time I really like to go to the
+- **[01:26]** movies and the luckily there's movie
+- **[01:29]** theater there by my home I am starting
+- **[01:34]** to get worried now because I don't feel
+- **[01:38]** like going too far in what I mean and
+- **[01:42]** I'm not sure if I had more free time now
+- **[01:47]** as an adult but what is first circus
+- **[01:51]** that I have definitely more freedom from
+- **[01:55]** my mom's negative this was a pretty
+- **[01:57]** solid answer
+- **[01:59]** I wonder if Rachel's actually started to
+- **[02:01]** prepare for some of these answers now
+- **[02:03]** now that she's going on YouTube anyway
+- **[02:05]** each human in comparison to Mooney Jeong
+- **[02:08]** GIGO heart dinner Upton to Johan
+- **[02:10]** strategy capito Hamidah when you are
+- **[02:12]** answering a comparison question you
+- **[02:14]** a clear main point but this main point
+- **[02:16]** is not just any main point it is
+- **[02:18]** something that I like to call a pure
+- **[02:20]** present what I mean by pure present is
+- **[02:23]** that you're only thinking about the
+- **[02:24]** present and that's it no comparison
+- **[02:27]** words just the present so if you say
+- **[02:29]** something like oh you know I have a lot
+- **[02:31]** more free time now than when I was a
+- **[02:34]** child you are already comparing and I do
+- **[02:36]** not want you to do that now please don't
+- **[02:39]** get me wrong in normal conversation this
+- **[02:41]** is actually very good but because this
+- **[02:43]** is OPIC we have very limited time and so
+- **[02:46]** we're trying to make our answers as
+- **[02:48]** clear as possible easy to understand and
+- **[02:51]** boost up our marks if you give a pure
+- **[02:53]** present answer then your next step is
+- **[02:55]** actually past tense and when you do this
+- **[02:58]** your main point which is pure present
+- **[03:01]** and then the next part of your answer
+- **[03:03]** which is past experience the contrast
+- **[03:05]** between those two parts becomes way
+- **[03:08]** bigger and that is the only reason why
+- **[03:10]** we are making it a pure present and also
+- **[03:13]** when you're listening to the question it
+- **[03:15]** becomes easier for you you don't have to
+- **[03:17]** be thinking about anything else
+- **[03:18]** Tiago de semana Tinka hominem attack and
+- **[03:21]** as you answer that then you can
+- **[03:23]** naturally think about your next point of
+- **[03:25]** course after the past experience you
+- **[03:27]** jump right into the present and then
+- **[03:29]** here there's another contrast you don't
+- **[03:32]** peek out you wonder heck there you are
+- **[03:33]** showing two kinds of contrasts here from
+- **[03:36]** your main point to the past and from the
+- **[03:38]** past to the present and you are
+- **[03:40]** skillfully doing this in a very
+- **[03:42]** organized fashion would enjoy Rachel to
+- **[03:44]** the verge has a pops it all right thing
+- **[03:48]** I didn't do anything watch when I was
+- **[03:51]** trial during my free time and at the
+- **[03:56]** time I really liked to just stay at home
+- **[03:58]** and relax um all right I think I didn't
+- **[04:02]** do anything much when I was a child
+- **[04:04]** during my free time now this is
+- **[04:07]** interesting
+- **[04:07]** usually most comparison questions end
+- **[04:10]** with the present so the format is
+- **[04:12]** usually like compare the past to the
+- **[04:14]** present but this is a rare comparison
+- **[04:17]** question it actually ends with the past
+- **[04:19]** so the format is compare the present to
+- **[04:22]** the past now for most of you I just
+- **[04:24]** highly recommend using
+- **[04:26]** our formula stick to the pure present
+- **[04:28]** main point and then go to the past so
+- **[04:31]** Rachel over here she has a little bit
+- **[04:32]** more of an advanced listening ability
+- **[04:35]** and so her strategy is a little bit
+- **[04:36]** different she tends to start her answer
+- **[04:39]** with whatever was asked last this is
+- **[04:41]** actually a very advanced method and so
+- **[04:44]** if you feel like you're listening
+- **[04:45]** ability is actually quite good try this
+- **[04:47]** strategy it'll make your answers even
+- **[04:49]** more natural change a yogi Tallapoosa
+- **[04:51]** anything much oh you don't have a good'n
+- **[04:54]** you can pretty much use this anywhere
+- **[04:56]** and after you use this expression your
+- **[04:58]** sentence after that sounds so natural so
+- **[05:01]** for example I went to Japan last year
+- **[05:03]** and you know I didn't do anything much
+- **[05:05]** all I did was eat any man you know
+- **[05:07]** whenever I go to a coffee shop I don't
+- **[05:10]** do all that much all I do is get a cup
+- **[05:12]** of coffee and study anything much all
+- **[05:14]** that much Haga bees tell me that yogi
+- **[05:16]** town balloon of woman-owned when I was
+- **[05:18]** child she needs the word are there so
+- **[05:21]** when I was a child during my free time
+- **[05:24]** during a contention man I highly
+- **[05:26]** recommend whenever I had free time I
+- **[05:28]** think that's a little bit more natural
+- **[05:29]** and um at that time I really like to
+- **[05:32]** stay at home and relax okay so because
+- **[05:36]** she used the word I really liked you
+- **[05:38]** shouldn't put the IDI here so I really
+- **[05:41]** liked to stay home and relax but here
+- **[05:43]** this is a very common mistake at that
+- **[05:46]** time Koreans use this all the time can
+- **[05:48]** they at that time ire go during those
+- **[05:50]** times
+- **[05:51]** soo-dong gee I mean you're not back then
+- **[05:53]** don't can text me that and my mom was
+- **[05:56]** usually like wait L did you do your
+- **[05:58]** homework or way to clean your room
+- **[06:01]** whenever I had my free time she always
+- **[06:05]** nagging me to do something more
+- **[06:08]** productive yogini rachel capital
+- **[06:11]** quotation or garcia and my mom was
+- **[06:13]** usually like Rachel did you do your
+- **[06:16]** homework or Rachel clean your room
+- **[06:19]** who do you owe money cut this a nail how
+- **[06:21]** much no he take its care for her again
+- **[06:23]** double direct quotation or socio sound
+- **[06:25]** got one jujube new kendama Yoga town
+- **[06:27]** whenever I had my free time
+- **[06:29]** yogi mine and Tommy oh hang with me des
+- **[06:31]** I mean we cannot use anything else here
+- **[06:33]** whenever I had your free time whenever
+- **[06:36]** had my mother's free time it's kind of
+- **[06:38]** strange so just taking it out is much
+- **[06:40]** better doc edentia guru whenever I had
+- **[06:42]** free time bla bla bla and I mean no much
+- **[06:45]** was ill she always mad at me to do
+- **[06:48]** something more productive nagged
+- **[06:50]** productive no much won't another sauce
+- **[06:52]** to me that so cheeky
+- **[06:53]** we do menudo tangerine um - Monica
+- **[06:55]** Danielle each I'm to recap and Tori
+- **[06:57]** catchy to listen and I found it so
+- **[07:01]** annoying and I never understood why she
+- **[07:05]** wouldn't let me fear and um I found it
+- **[07:08]** so annoying Rachel and come job children
+- **[07:10]** what's hot hot you go take a more
+- **[07:12]** handbook on Mina coulda took a yogi
+- **[07:13]** expression in know much why I found it
+- **[07:15]** present incident I find it you catch an
+- **[07:18]** eye on you know can you jump down you
+- **[07:19]** know expression anokhin pure harmony
+- **[07:21]** none little cause we got your boy coming
+- **[07:23]** up could go you'll get time to minute
+- **[07:24]** door Rachel she don't get her boy now
+- **[07:26]** she's able to talk about the same thing
+- **[07:28]** over and over again in different ways
+- **[07:31]** making her answer so deep she starts by
+- **[07:34]** a direct quotation and then she explains
+- **[07:36]** what her mother did and now she's
+- **[07:37]** explaining how she felt and then she
+- **[07:39]** further explains that feeling just
+- **[07:42]** amazing can they check out you'll get to
+- **[07:43]** John Hannah gonna just to me that and I
+- **[07:45]** never understood why she wouldn't just
+- **[07:47]** let me be he hunt had our own Chantal
+- **[07:50]** not sure I get too limited but now I had
+- **[07:53]** more freedom from my mom and then
+- **[07:56]** whenever I had my free time I really
+- **[08:00]** like to go to the movies but now I have
+- **[08:04]** more freedom from my mom perfect
+- **[08:05]** sentence and um whenever I had my free
+- **[08:09]** time so in this case end up whenever I
+- **[08:11]** have free time is much better and of
+- **[08:14]** course please take out the word my as
+- **[08:16]** well as I have already explained that
+- **[08:18]** earlier on so Rachel should have said
+- **[08:20]** something like this whenever I have free
+- **[08:21]** time I really like to go to the movies
+- **[08:24]** yo you go to the movies got no much
+- **[08:26]** while minor haxing didn't I like to go
+- **[08:28]** to the movie theater Academy oh cool the
+- **[08:30]** Kentucky man I'm not too eager Horse
+- **[08:32]** Shinto natural Hamidah go to the movies
+- **[08:34]** and luckily there's movie theater there
+- **[08:37]** by my home I am starting to get worried
+- **[08:43]** now because
+- **[08:45]** I don't feel like going too far you know
+- **[08:48]** what I mean
+- **[08:49]** and um luckily there's aa movie theater
+- **[08:53]** nearby my home Onegin twice a turkey
+- **[08:55]** luckily hey get on T turning me down can
+- **[08:58]** yo get down to the bush Michelle and I
+- **[08:59]** think I'm starting to get old now
+- **[09:01]** because I don't feel like going too far
+- **[09:04]** you're gonna wonder what I mean
+- **[09:05]** sentencing me that I'm starting to
+- **[09:07]** jaunty tear da past tense he you gettin
+- **[09:10]** in I decided to go somewhere I decided
+- **[09:13]** to do this good expression to each other
+- **[09:15]** you can make an ongoing present tense in
+- **[09:17]** North America I'm starting to you know
+- **[09:20]** more know what your own expression you
+- **[09:21]** got your abundant money stop saying
+- **[09:22]**  no manure gonna gonna go get Anika
+- **[09:24]** I don't feel like going too far you're
+- **[09:27]** going on I don't want to go too far
+- **[09:28]** Buddha never Shinto you keen on an
+- **[09:30]** expression in the gun I feel like I
+- **[09:33]** don't feel like I felt like I didn't
+- **[09:36]** feel like you didn't go to my honey my
+- **[09:37]** knees higher BlueShield I'm a yogi my
+- **[09:39]** favorite part you know what I mean ya
+- **[09:41]** got Ava hunting in John Moore 100 go
+- **[09:44]** ahead don't cheat on Amita and I'm not
+- **[09:46]** sure if I had more free time now as an
+- **[09:50]** adult but what is pretty certain is that
+- **[09:54]** I have definitely more freedom from my
+- **[09:58]** mom's negative now take a look at this
+- **[10:00]** conclusion it is smack see I mean it is
+- **[10:03]** so nice and um I'm not sure if I have
+- **[10:05]** more free time now as an adult it's
+- **[10:08]** about what is for certain is that I have
+- **[10:10]** definitely more freedom from my mom's
+- **[10:13]** nagging católica know much about the
+- **[10:15]** kumara tonight oh you're gonna go to
+- **[10:17]** yoga conclusion Tasha Tanja no Samira
+- **[10:19]** can they get tired okay this is what I
+- **[10:21]** call a powerful conclusion you're open
+- **[10:23]** to the conclusion it is all magic Aoyama
+- **[10:25]** hominin then think about some feeling
+- **[10:27]** related thing that you have said and
+- **[10:29]** then reconfirm it in the conclusion so
+- **[10:31]** if you really hated something that in
+- **[10:33]** the conclusion do you still hate it now
+- **[10:35]** or is it much better and that'll make
+- **[10:37]** your conclusion so powerful and unique
+- **[10:39]** now let's take a look at some of these
+- **[10:40]** expressions I'm not sure no more no more
+- **[10:42]** smooth haggle ship kisser suing an
+- **[10:45]** expression imita and of course rachel
+- **[10:46]** loves to use for certain to give Amiata
+- **[10:49]** eat in the kamijou and then this last
+- **[10:50]** one definitely to get cutter it's an
+- **[10:53]** added detail
+- **[10:54]** that makes her sentence even richer this
+- **[10:56]** is OPEC no Jam don't you men live
+- **[10:59]** youtuber Madison come with me that it on
+- **[11:01]** a bungalow Chicago diamond having a
+- **[11:02]** normal schedule under Kissimmee
+- **[11:04]** mandhaakini PDO Goswami this was to me
+- **[11:06]** like boom
+
+
+---
+
+<!-- Source: 아따 오픽 롤플레이 겁나 어려워졌네. 그래도 뿌시는 방법은 있소!   AL 시리즈 학생편 012_script.md -->
+# 아따 오픽 롤플레이 겁나 어려워졌네. 그래도 뿌시는 방법은 있소!  | AL 시리즈 학생편 012
+
+- **Video URL:** https://www.youtube.com/watch?v=87oKU4KJnXE
+
+## Script & Description
+
+
+---
+
+<!-- Source: 영국여자와 함께 재활용문제 겁나 쉽게 대답하기!  오픽 외국인편 003_script.md -->
+# 영국여자와 함께 재활용문제 겁나 쉽게 대답하기! | 오픽 외국인편 003
+
+- **Video URL:** https://www.youtube.com/watch?v=cWTQmA6lV-w
+
+## Closed Captions Transcript
+
+- **[00:00]** I like to know about how recycling is practiced in your country.  What do people specifically do? Tell me how things are recycled.
+- **[00:08]** Oh dear Lord!
+- **[00:11]** Wow!
+- **[00:15]** This girl over here... She says, "Oh, my Lord!"
+- **[00:21]** Whenever you do OPIC, do you want to be a robot or a human being?
+- **[00:33]** You have to be very natural So, she says, "Oh, my Lord!".
+- **[00:38]** UK 영어
+- **[00:40]** I recommend... because I'm Canadian...
+- **[00:42]** Try something like this: Oh, my God!
+- **[00:50]** I like: Oh my gosh!
+- **[00:53]** Oh my goodness!
+- **[00:58]** Whenever you are very confused or... Holy cow this is just a hard question or... What the heck?!
+- **[01:06]** Well, I live in a very small apartment building
+- **[01:09]** Um so not like one of the big uh apartment villages.
+- **[01:15]** Apartment villages. Now, that's interesting.
+- **[01:18]** I think what she meant to say was: apartment complexes.
+- **[01:21]** You see, in Korea, there are so many apartments all grouped together.
+- **[01:25]** They're like a family. They're like an army.
+- **[01:28]** And so actually when I first came to Korea...
+- **[01:30]** I've never seen so many of the same groups of apartments in my life!
+- **[01:35]** And so when I looked it up on Google, it said that it's called: apartment complexes.
+- **[01:39]** Now
+- **[01:41]** Apartment
+- **[01:45]** Ever since you were young, from Kindergarten till now,  I'm sure, in school, you learned like this:
+- **[01:55]** But every time there's an  M-E-N-T word
+- **[01:58]** M-E-N-T
+- **[02:02]** "MINT" 발음: Apartment Government Garment Compliment
+- **[02:18]** Chocolate mint
+- **[02:20]** One more time!
+- **[02:24]** Apartment Appointment
+- **[02:26]** In OPIC, pronunciation isn't all that important
+- **[02:29]** But at the same time if you fix the M-E-N-T words
+- **[02:32]** If you practice that, you will sound so much better!
+- **[02:40]** I think the answer is obvious!
+- **[02:42]** There's not too much... There's not too much recycling going on.
+- **[02:48]** In OPIC, I always say: honesty is the best policy.
+- **[02:56]** Honestly, in OPIC sometimes just being honest is the best way to answer questions.
+- **[03:01]** This girl over here, she's just saying: "Hey, I don't do that much recycling."
+- **[03:05]** Honest
+- **[03:06]** That is also very, very good!
+- **[03:09]** Remember in OPIC it's not what you say. It's not about your points.
+- **[03:13]** It's about your feelings!
+- **[03:19]** Opinion
+- **[03:20]** Feelings and opinions
+- **[03:22]** Whatever you feel about it.
+- **[03:23]** It's not how you answer. It's what you feel about the answer.
+- **[03:27]** That is the most important thing.
+- **[03:30]** Expression / Sentence
+- **[03:32]** She says something that is very natural and very, very normal
+- **[03:35]** And at the same time very useful for many students trying to answer recycling questions.
+- **[03:40]** So she says:  "There's not too much recycling going on."
+- **[03:43]** Very nice.
+- **[03:46]** Too much / Too many
+- **[03:50]** Grammar
+- **[03:52]** In OPIC,  the countable and uncountable grammar  is very, very important.
+- **[03:56]** And so, you have to make sure that you don't make this mistake.
+- **[03:59]** Now sometimes it is confusing.
+- **[04:00]** And so if you're not good with this, just change: "too much", "too many" to: "a lot of"
+- **[04:06]** There's not too much recycling going on.
+- **[04:09]** There's not a lot of recycling going on.
+- **[04:11]** Not a lot of...
+- **[04:13]** You'll always be right in grammar.
+- **[04:19]** Recycling
+- **[04:23]** There's not a lot of recycling going on. You know, I actually don't do all that much.
+- **[04:29]** You know there's not a lot of recycling going on.  I mean, I actually don't do all that much.
+- **[04:38]** This girl when she's thinking she kind of repeats her words.
+- **[04:41]** Now for OPIC this is actually very, very good because, again, it makes you sound very natural.
+- **[04:46]** She says:  "There's not too much... there's not too much going on."
+- **[04:58]** She's a little bit slower there.
+- **[04:59]** And then she speeds up again.
+- **[05:01]** Now, if you do this in OPIC,  It makes you sound like you're thinking...
+- **[05:04]** And then, all of a sudden, when you're talking again...
+- **[05:07]** It makes you sound very smooth.
+- **[05:08]** There's not too much... there's not too much going on.
+- **[05:17]** Natural
+- **[05:20]** Let's say: coffee shops.
+- **[05:21]** Whenever I go to coffee shops, I usually order... I usually order Americanos.
+- **[05:29]** Repetition
+- **[05:30]** Holy cow! You should amazing!
+- **[05:32]** Um what I mostly see in my area are clear plastic bags or... that... those green netting bags.
+- **[05:42]** And it's just a mixture of tins, glass, plastics, paper...
+- **[05:47]** Actually I don't see paper at all.
+- **[05:50]** But mostly just um plastics and glass in these clear bags put out with the rubbish.
+- **[05:57]** What I mostly see in my area are...
+- **[06:00]** It is amazing actually. Nice and simple.
+- **[06:03]** And for AL, whenever you want to get that kind of mark,  you have to show your feeling here.
+- **[06:13]** Most students will say: there's this, there's that... And that's it.
+- **[06:17]** But here, she's saying what she sees. "What I mostly see..."
+- **[06:22]** Very, very, high quality English.
+- **[06:24]** Next, she talks about plastic bags and the green netting bags.
+- **[06:28]** Now there's different ways to say netting bags. You could say: poly mesh bags, net bags, poly mesh netting bags...
+- **[06:34]** So this is very good vocabulary to use when you're talking about recycling.
+- **[06:39]** After that, she gives very good examples.
+- **[06:41]** She says this: And it's just a mixture of tins, glass, plastics, paper... things like that.
+- **[06:47]** Very, very nice! I love that word: mixture.
+- **[06:50]** Whenever you're practicing (the topic) recycling, try to use that word "mixture".
+- **[06:54]** Um you can also do: It's a mix of... or It's a mixture of...
+- **[06:58]** Wow, very nice.
+- **[06:59]** But of course if you want to get AL that word "just"...
+- **[07:06]** You know a lot of students... they don't know how to use the word "just".
+- **[07:09]** But if you want to boost your English you use those little words.
+- **[07:13]** It's those little words that count.
+- **[07:15]** So --> It's "just" a mixture of... compared to --> It's a mixture of...
+- **[07:18]** Your sentences are longer and it just sounds way better and way more natural.
+- **[07:23]** Now there's a moment where she actually becomes honest again and she says:
+- **[07:27]** Wait a minute... actually, I don't see paper at all.
+- **[07:30]** Again very, very natural... Very honest and very human.
+- **[07:34]** I totally recommend this kind of style.
+- **[07:36]** When you say something  - and if it's not accurate -  just be honest about it.
+- **[07:40]** In the OPIC test, it's all about these kinds of little things that make you sound way better.
+- **[07:45]** It doesn't make you sound scripted and it makes you sound like you're talking on the spot.
+- **[07:49]** Very good for OPIC.
+- **[07:50]** She also says the word: rubbish.
+- **[07:52]** Rubbish means "trash". And so it's a good word.
+- **[07:55]** Now, for me, I'm not all accustomed to "rubbish" because I mostly just use garbage or trash.
+- **[08:01]** So that's up to you. If you want to use UK English you could use "rubbish".  If you want to use North American English, I recommend "trash" or "garbage".
+- **[08:08]** But what I loved the most about it was that she was talking about recycling  and how it's mixed up with the trash as well.
+- **[08:14]** So, very good description there.
+- **[08:16]** So my understanding of it is that the garbage guys... can't... have to be able to recognize that it's recycling  as opposed to normal trash.
+- **[08:26]** My understanding of it...
+- **[08:28]** Very, very good sentence here.  It just basically means...
+- **[08:33]** Very, very, very nice. And then she says something that kind of made me laugh a little bit.  But she says "garbage guys".
+- **[08:39]** And that's so natural because she didn't know at the time what to call them.
+- **[08:43]** She just tried her best to describe who they are and she says: garbage guys.
+- **[08:47]** Of course she could have said  "garbage collectors" or "trash collectors"
+- **[08:51]** But garbage guys just sounds so natural.
+- **[08:54]** Now she goes even further by describing to us what the garbage guys' role is.
+- **[08:59]** She does this by telling us we need to recycle because...
+- **[09:03]** They, the garbage guys, need to recognize recycling as opposed to normal trash.
+- **[09:09]** Very good description here.
+- **[09:11]** I don't know all that much about recycling  but as I understand it  the reason why we recycle is because the garbage guys  need to be able to recognize that it's recycling  as opposed to normal trash.
+- **[09:32]** Fillers
+- **[09:38]** You know, I don't know all that much about recycling but um... you know as I understand it...
+- **[09:46]** You know, the reason why we recycle is because the garbage guys...
+- **[09:51]** You know, need to be able to recognize that it's recycling  as opposed to you know, normal trash.
+- **[10:01]** By the way, I know that was a very long sentence and, you know, you're probably thinking: "how can I memorize that?!"
+- **[10:06]** I'm just showing you the strategy here. The most important thing here is the: 감정I
+- **[10:11]** It's not just about the point, but it's about how you feel, what you see,  and what you see what others see.
+- **[10:19]** Do you know what I mean?
+- **[10:29]** Um my experience overall
+- **[10:33]** Conclusion
+- **[10:35]** Overall
+- **[10:37]** But this girl! She is so smooth.
+- **[10:39]** She doesn't just say "overall"... She says: "my experience overall"
+- **[10:44]** HOLY COW!
+- **[10:51]** Um my experience overall hasn't been terribly clear.
+- **[10:57]** But I'm also aware that it's quite different in the larger apartment blocks or villages.
+- **[11:04]** Great! Thank you!
+- **[11:12]** I'm sorry my Korean is very bad.  But I'm trying to make you understand that in her concluding sentence  she again becomes very honest...
+- **[11:19]** And says that:  "Yeah, I don't know too much about recycling, but hey,  by the way, I heard that in other places  they do it slightly differently.  But um, this is how much I know about it.
+- **[11:29]** Very honest. Very clear. Very natural.
+- **[11:35]** This is OPICNOJAM! If you enjoyed this kind of content 구독 해주십쇼!
+- **[11:40]** BOOM!
+
+
+---
+
+<!-- Source: 영어 오픽 habit 질문들(교통,재활용,예약), 게으른 사람도 쉽게 배울수 있는 신기한 방법! ㅣ IM 시리즈 009_script.md -->
+# 영어 오픽 habit 질문들(교통,재활용,예약), 게으른 사람도 쉽게 배울수 있는 신기한 방법! ㅣ IM 시리즈 009
+
+- **Video URL:** https://www.youtube.com/watch?v=Q140WVM4MvE
+
+## Script & Description
+
+
+---
+
+<!-- Source: 오픽 comparison 끝판왕  IM 시리즈 022_script.md -->
+# 오픽 comparison 끝판왕 | IM 시리즈 022
+
+- **Video URL:** https://www.youtube.com/watch?v=nuB-OXGZnXg
+
+## Script & Description
+
+
+---
+
+<!-- Source: 오픽 묘사 질문 대답을 어떻게 영어로 뇌에 쏙쏙 박히게 만들까 ㅣ IM 시리즈 006_script.md -->
+# 오픽 묘사 질문 대답을 어떻게 영어로 뇌에 쏙쏙 박히게 만들까 ㅣ IM 시리즈 006
+
+- **Video URL:** https://www.youtube.com/watch?v=TAvDbEZ5s3E
+
+## Script & Description
+
+
+---
+
+<!-- Source: 오픽 비교질문들이 머리속을 하얗게 만드나요 이 놀라운 방법을 사용하면 깔끔하게 대답할수 있어요!  IM 시리즈 012_script.md -->
+# 오픽 비교질문들이 머리속을 하얗게 만드나요? 이 놀라운 방법을 사용하면 깔끔하게 대답할수 있어요! | IM 시리즈 012
+
+- **Video URL:** https://www.youtube.com/watch?v=YqS3VtnHzK4
+
+## Script & Description
+
+
+---
+
+<!-- Source: 오픽 서베이 고민없이 한방에 선택하는 방법!  IM 시리즈 015_script.md -->
+# 오픽 서베이 고민없이 한방에 선택하는 방법! | IM 시리즈 015
+
+- **Video URL:** https://www.youtube.com/watch?v=INitYbgNcps
+
+## Script & Description
+
+
+---
+
+<!-- Source: 오픽 시험전에 꼭 봐야할 총 정리 영상  IM 시리즈 014_script.md -->
+# 오픽 시험전에 꼭 봐야할 총 정리 영상 | IM 시리즈 014
+
+- **Video URL:** https://www.youtube.com/watch?v=8mL5PRcVo3k
+
+## Script & Description
+
+
+---
+
+<!-- Source: 오픽 영어 공부할 시간이 없다면, 이 과거경험 영상 하나만 보세요! ㅣ IM 시리즈 010_script.md -->
+# 오픽 영어 공부할 시간이 없다면, 이 과거경험 영상 하나만 보세요! ㅣ IM 시리즈 010
+
+- **Video URL:** https://www.youtube.com/watch?v=RYipMooSBVg
+
+## Script & Description
+
+
+---
+
+<!-- Source: 오픽 패션, 가구 묘사 답변! 영어로 뇌에 문신 새기기~! ㅣ IM 시리즈 007_script.md -->
+# 오픽 패션, 가구 묘사 답변! 영어로 뇌에 문신 새기기~! ㅣ IM 시리즈 007
+
+- **Video URL:** https://www.youtube.com/watch?v=XYcf5XiIdgE
+
+## Script & Description
+
+
+---
+
+<!-- Source: 오픽에 재미있는 TMI 답변을 준비해보세요!  IM 시리즈 005_script.md -->
+# 오픽에 재미있는 TMI 답변을 준비해보세요! | IM 시리즈 005
+
+- **Video URL:** https://www.youtube.com/watch?v=SZv5_EHRiYE
+
+## Closed Captions Transcript
+
+- **[00:00]** young away Yong Yong Aloha her poem do
+- **[00:04]** you have a difficult time thinking about
+- **[00:06]** a past experience story young San I am
+- **[00:10]** had seemed to wear some unknown g-man
+- **[00:11]** creator I Ajax indeed or money told me
+- **[00:14]** Teresa - Teresa - yeah I get a mandolin
+- **[00:17]** game could okay audio I'm gonna uneasy
+- **[00:19]** man okay wind you Oh big humor hurt
+- **[00:21]** there noon cooky I'll get her share Hana
+- **[00:23]** Gateway to kill horrible joke could on
+- **[00:24]** the part of Jackie got the most serious
+- **[00:26]** hug I think I can the gun how she could
+- **[00:28]** okay I know they own their normal candy
+- **[00:30]** tell all your kids hang out go hunting
+- **[00:31]** going honestly you don't have to give
+- **[00:33]** some crazy big Hollywood story it could
+- **[00:37]** be a very simple story condition I am
+- **[00:40]** take a Hannah Portobello to the game
+- **[00:42]** often ya get hurt there don't
+- **[00:44]** yagi animal Pangu yagi cougar attack
+- **[00:48]** come on help us here hope you a
+- **[00:49]** completely unexpected story could be up
+- **[00:52]** to munch hey mr. Coyle can get your up
+- **[00:54]** underdog yeah get him yourself
+- **[00:56]** tortured her I can't lose to me now
+- **[00:58]** Tsubaki up Goku OPIC grade early I'm cha
+- **[01:01]** music where wait I don't Hudson to
+- **[01:03]** connect hey me on the Yangon hand in
+- **[01:04]** there Shekinah Oh bong goo yeah get
+- **[01:07]** honey gun it's gonna feel very new and
+- **[01:09]** fresh pressed punku-- for a stone I'm
+- **[01:12]** attempting that you got chicken semper
+- **[01:14]** to get her name Hannah what expression
+- **[01:16]** search on a ludic a charm on Topanga
+- **[01:18]** wait a so they got either share haggis
+- **[01:21]** Amida Arcana Yoda boom
+- **[01:23]** he hung go mad away Takei colm Iike your
+- **[01:25]** upon eat Hannah are Tameka part
+- **[01:27]** door Parton entangled warnin Muni
+- **[01:30]** channel caption Miran Pangu mundo
+- **[01:33]** topango booney stationery store Tamika
+- **[01:36]** take a ginger a hunter a hug with Sonia
+- **[01:39]** a Merton number one let er rip
+- **[01:42]** enemy on let one rip you're gonna change
+- **[01:45]** a Pangu it is a warning means who join
+- **[01:48]** me da cunha fr Tommy I can't shooting
+- **[01:50]** the kimmiegold coulda goes for chick it
+- **[01:52]** could open grader day come on could
+- **[01:53]** impressed in the Kimmie I'm not going
+- **[01:55]** good day let it rip hammy honor crew
+- **[01:58]** Oprah crater duty pas it can open up my
+- **[02:00]** song
+- **[02:01]** wow you moon you're watching Kim Jong
+- **[02:02]** Kook Ricky Dicky committee critical
+- **[02:05]** Yogi's a choco taco Buddha hominin heck
+- **[02:07]** is he mr. rip took a Busan to Shamika
+- **[02:09]** Tony cheetah cub achievement a hippo
+- **[02:12]** sale nah
+- **[02:12]** upon google normal sahaja go Joey
+- **[02:16]** don't go Momiji jaja uh wrong glass here
+- **[02:20]** creo manikyam chamcham Johnny Ibaka with
+- **[02:22]** me alone
+- **[02:23]** no more chase or hassle I'm rotten
+- **[02:24]** qur'an good Kimi Mita so can you imagine
+- **[02:27]** you using this very natural heart
+- **[02:30]** expression as you are telling your story
+- **[02:33]** it's gonna be so impressive I can
+- **[02:35]** guarantee it
+- **[02:36]** current ke expression at all boon
+- **[02:38]** Chandra Hanuman durable Sheena and the
+- **[02:40]** woody to your opaque has the experience
+- **[02:42]** you moon dear chicken today poor honey
+- **[02:44]** can you get to your past tense Raquel I
+- **[02:46]** needed to let it rip come on Tom I
+- **[02:48]** needed to let it rip number two cut
+- **[02:51]** cheese y'all open to the eagle eye
+- **[02:53]** lunchable look at you man joy its
+- **[02:55]** stepfather D Italia namida no trigger
+- **[02:58]** hopes are to capture he picking them
+- **[03:00]** check out would she be uncoil condemned
+- **[03:02]** become Chucky
+- **[03:02]** oh he became my father I'm an Italian
+- **[03:05]** didn't she's um Tom anemic John I'll do
+- **[03:08]** the autumn cheese didn't don't hug your
+- **[03:10]** names in the midde your own young barman
+- **[03:13]** come name's Jo can I naturally angel
+- **[03:15]** tsukitachi man hey get Shinji Adric well
+- **[03:17]** could you hurry up on me give me cheat a
+- **[03:19]** bunch of names at a night then shocker
+- **[03:20]** para su take a good tip Oh together ah
+- **[03:22]** sir ah there's a lot of cultural
+- **[03:25]** differences in this world a motive cut
+- **[03:27]** cheese
+- **[03:28]** ego do Pangu Amita okay bunch Akram
+- **[03:30]** Amanda Boop cheetah I was at Starbucks
+- **[03:32]** and all of a sudden I had to cut cheese
+- **[03:36]** come on dawn I was a Starbucks and all
+- **[03:38]** of a sudden I had to cut cheese
+- **[03:40]** number three Thunder from Down Under you
+- **[03:43]** gonna talk to me Jenna when I mean it's
+- **[03:45]** rhyming you know um gigabit a metadata I
+- **[03:48]** want to eagle odo wooden hammer mandible
+- **[03:50]** cheetah I was at the bar with my friends
+- **[03:52]** the other day and all of a sudden I felt
+- **[03:56]** a little Thunder from Down Under
+- **[03:59]** humbled uh I was at the bar with my
+- **[04:00]** friends the other day and all of a
+- **[04:02]** sudden I felt a little Thunder from Down
+- **[04:04]** Under
+- **[04:04]** number four silent but deadly this is a
+- **[04:08]** true fact
+- **[04:09]** she's a kooky hominin my name's Hannah
+- **[04:11]** now go yeah touch of malaria known names
+- **[04:14]** like a book not on I hope I'm at the
+- **[04:15]** girl Amanda booster I cut cheese in the
+- **[04:18]** restaurant and I was hoping that no one
+- **[04:21]** would find out I mean it was silent but
+- **[04:25]** deadly
+- **[04:26]** Hamada I cut cheese in the restaurant
+- **[04:28]** and I was hoping that no one would find
+- **[04:30]** out I mean it was silent but deadly
+- **[04:33]** charge it woody Gaia days huh
+- **[04:36]** y'all got your expressions the dirt pero
+- **[04:38]** boceta number one number one number one
+- **[04:42]** an OB on Damita you're gonna pull an
+- **[04:45]** easy man Chris Aliotti reticles at I saw
+- **[04:47]** you kiss her Brando Hannah Goya number
+- **[04:49]** two number two don't heckle I hope man
+- **[04:51]** number two new guy me that debut on take
+- **[04:54]** a humble hung go get quarter cup almond
+- **[04:57]** as a suitor ahead the Sun in their joy
+- **[04:59]** suzer now Honey Creek a nose haha
+- **[05:01]** tabletop better you can they cook dinner
+- **[05:03]** take a table noble luck that you go he
+- **[05:05]** gonna blow it up i couldnt you go or
+- **[05:10]** goody bag a me on so off to gets her
+- **[05:12]** really Heather G we lose that I will
+- **[05:13]** that could take a year ahead you go kook
+- **[05:16]** I know Santa Tigger go Charo yogacara
+- **[05:18]** Joseph Smith who got a gorilla came at
+- **[05:19]** at your number one is hope Ian number
+- **[05:22]** two is Debian number three take a dump
+- **[05:26]** you gonna change out a 1 John wanna me
+- **[05:27]** suit you nail this is high-class poo
+- **[05:30]** right here could it go dump Onan sadeghi
+- **[05:32]** go Daniel so it's making a connection
+- **[05:34]** with your poo and garbage no he's a
+- **[05:37]** bunch Anaheim under pops it up I felt
+- **[05:39]** like taking a dump
+- **[05:40]** during the meeting oh the timing was
+- **[05:44]** terrible humbled uh I felt like taking a
+- **[05:46]** dump
+- **[05:46]** during the meeting oh my gosh the timing
+- **[05:49]** was terrible
+- **[05:50]** number four deuce its deuce means to
+- **[05:53]** Guernica number two tano hoggle yeah
+- **[05:55]** computes time to give me sir how can he
+- **[05:57]** go tuck in Tijuana means er yeah take an
+- **[05:59]** impressive hunt on ome de you will
+- **[06:01]** definitely impress any English speaker
+- **[06:03]** if you can use this word naturally
+- **[06:06]** commander Bob Sheila I had to do sit
+- **[06:09]** Hammond oh I had to do sit eat hello
+- **[06:12]** noon it took a optimally occur also cash
+- **[06:14]** to do Seneca Karanka deuce it's real
+- **[06:16]** catchy case of time has here dioxygen
+- **[06:18]** cigar I am IH su Janeiro no more
+- **[06:21]** inaudible karaoke tan odors hyomezo
+- **[06:24]** he dubs emperor hammer he broke a cheese
+- **[06:26]** Moonen comments at times templates
+- **[06:28]** coisa ego Bozzio a motor to gotti Sempra
+- **[06:31]** hockey the fart sample could go to
+- **[06:33]** Montana the poo sample let's get it
+- **[06:35]** leggo problems at the beach well okay
+- **[06:39]** let me tell you
+- **[06:40]** about a problem of me letting it rip in
+- **[06:44]** front of my wife at the beach and it was
+- **[06:49]** one of the most embarrassing things I
+- **[06:52]** had to go through right and we were in
+- **[06:55]** Spain and we were just finding a nice
+- **[06:58]** spot at the beach and as I was bending
+- **[07:01]** over to pick up something you know
+- **[07:05]** something came out and my wife was
+- **[07:08]** laughing so hard and you know the way
+- **[07:12]** she was laughing I was just so
+- **[07:14]** embarrassed you know and I started to
+- **[07:18]** laugh too of course but I couldn't
+- **[07:20]** believe that happens you know like it
+- **[07:22]** was so loud we were outside at the beach
+- **[07:26]** and yet you know it was as clear as day
+- **[07:31]** and I could never forget that moment so
+- **[07:34]** basically whenever we go to any beach my
+- **[07:38]** wife always reminds me of this story all
+- **[07:43]** right you're a boon I tried my best to
+- **[07:45]** make this answer short and simple and
+- **[07:48]** yet advanced enough for you to get a
+- **[07:51]** high mark Choi Yeojin and Pangu you sir
+- **[07:53]**  man take a car come on go Sheikh
+- **[07:55]** it's illegal could you go audio Donald
+- **[07:57]** Romani and so Sumida you're open to the
+- **[07:59]** ether she groped Boni her sweets and
+- **[08:01]** again he scripted away coochie MA her go
+- **[08:04]** Pangu neonate estas hanga cameo saw my
+- **[08:06]**  yo de bunda de ya get er him
+- **[08:09]** diraja me own own Pangu yeah give us a
+- **[08:11]** chance we go into a sample - don't ya
+- **[08:13]** get him ok oh ok I get you man G mu nu
+- **[08:15]** times templates meter all right well I
+- **[08:17]** have a very interesting story to tell
+- **[08:20]** you because basically the other day I
+- **[08:23]** was riding my bike and I felt like I
+- **[08:27]** needed to take a dump but the problem
+- **[08:31]** was you know there was no washroom
+- **[08:33]** nearby and so I was riding this bike
+- **[08:37]** very slowly and kind of standing up if
+- **[08:41]** you know what I mean and it was just
+- **[08:44]** such an uncomfortable situation because
+- **[08:47]** oh my gosh you know I was experiencing
+- **[08:51]** turtlehead Oh
+- **[08:53]** my goodness it was an emergency
+- **[08:56]** situation but luckily I was able to find
+- **[09:00]** Starbucks oh thank goodness for
+- **[09:04]** Starbucks and of course you know I had
+- **[09:07]** to just rush in and you know unload my
+- **[09:11]** beast after that I felt so relieved
+- **[09:16]** ciao y'all Guinea Yakka audio or sudou
+- **[09:18]** risa so catchy I take a container bahama
+- **[09:20]** self no more super super panel delete
+- **[09:22]** the whole thing again I have to go
+- **[09:24]** genius awesome
+- **[09:25]** Chiquita no turtlehead w busan Tameka
+- **[09:29]** pocket cream gonna happen if goose had a
+- **[09:32]** hammer and any gun yeah
+- **[09:35]** he gave it a lycanthrope Joe Oh chase no
+- **[09:38]** hassle no tree you could seems a good
+- **[09:40]** annoying me that clerk to Nanjing
+- **[09:43]** edge hi Tony idea song Guzman and I
+- **[09:45]** unleash my beast he came along gonna
+- **[09:48]** tell no hay ningún and kamu tidak man
+- **[09:50]** even to Kim you know pick a teddy bear
+- **[09:52]** head Samina I'm watching even got hot
+- **[09:53]** dawn
+- **[09:54]** you don't even today's watching at home
+- **[09:55]** or a purse is tellin ya k hinders and I
+- **[09:57]** own Tony yog and they got here did she
+- **[09:59]** can I change I take it connect and
+- **[10:01]** alligator tail cricket icky your upon
+- **[10:03]** today Pangu animal guide Ian yeah Giga
+- **[10:06]** is simeon panda chicks you say Charo
+- **[10:09]** okay Tameka Tilly comida can I manage
+- **[10:11]** hugging in tangu animal guide and yogi
+- **[10:14]** copter Connecticut simple archaic a head
+- **[10:17]** to tail our couch and I gots hatching
+- **[10:18]** understanding there can accrue not a
+- **[10:20]** normal connection gr gay could help
+- **[10:23]** ichido Papa I got to go you know Matt
+- **[10:26]** also know more shirasu not a world a
+- **[10:28]** charger go to know much one day or can
+- **[10:31]** accrue knowledge enjoy ya know maitake
+- **[10:33]** stricter sheep Oberon and check out that
+- **[10:35]** I'm a poor porn I got you go can you
+- **[10:37]** hire so up she often control can a
+- **[10:40]** Starbucks Church hodja hodja go connect
+- **[10:42]** all this we're gonna shimmy on so
+- **[10:44]** am Walter Chaco nursers hot you go
+- **[10:47]** Canyon take a cocky so relax the head
+- **[10:49]** Sumida wash Sita Oh piggy no Makapuu
+- **[10:51]** dinero capture camera figure Hanukkah
+- **[10:54]** damn in here anyways if you ever have
+- **[10:56]** difficulty sharing some sort of story on
+- **[10:59]** the Opie test think about a fart or poo
+- **[11:02]** story to us
+- **[11:03]** when I say this your poo we'll get you a
+- **[11:06]** high mark oh I could ago I am sound hon
+- **[11:09]** thank you so much for taking the time to
+- **[11:12]** make them time stamps for my general
+- **[11:15]** English young golf hey West video number
+- **[11:17]** 11 that kind of support really does help
+- **[11:20]** me though I would like to show you my
+- **[11:21]** appreciation by sending you a 10,000 won
+- **[11:24]** Starbucks gift card mine and gone Ananya
+- **[11:26]** when I'm gonna take a hundred Omaha
+- **[11:28]** dannika I'm with an e Young Saeng in
+- **[11:30]** comments a email alert you say you take
+- **[11:32]** a pair o Starbucks gift card alert
+- **[11:34]** holy dude gets to meet us peace
+
+
+---
+
+<!-- Source: 오픽영어 실력 향상을 쉽게! 문법 꿀팁  오픽 외국인편 004_script.md -->
+# 오픽/영어 실력 향상을 쉽게! 문법 꿀팁 | 오픽 외국인편 004
+
+- **Video URL:** https://www.youtube.com/watch?v=-LfnRsy3V70
+
+## Closed Captions Transcript
+
+- **[00:00]** First of all, thank you so much for doing this!
+- **[00:01]** My pleasure. Alright, awesome.
+- **[00:25]** Thank you so much for doing this.
+- **[00:27]** My pleasure.
+- **[00:31]** "It's" my pleasure.
+- **[00:33]** Grammatically, that is very correct.
+- **[00:36]** Conversation
+- **[00:41]** Gatherings have changed over the years. How were they in the past and how are they now? What are the differences and the similarities?
+- **[00:50]** Ah, alright.
+- **[00:52]** I got this one.
+- **[00:54]** This is an easy one.  I thought you were going to ask me a difficult one. Alright.
+- **[01:17]** Intonation
+- **[01:19]** Is maybe not so good.
+- **[01:20]** A lot of students will answer something but sound very robotic.
+- **[01:24]** We are not robots. We are humans.
+- **[01:26]** And so we need to have musical notes in our answer.
+- **[01:29]** And so how do you do that? I want you to smile as you are answering.
+- **[01:34]** Smile from ear to ear! And then your answers will be that much better.
+- **[01:37]** But let's continue to listen and see how we can get that AL.
+- **[01:41]** Well, I think... first let me start with the similarities. Um, I think...
+- **[01:52]** Well... Well, you know...
+- **[01:55]** When it comes to
+- **[01:57]** Oh by the way,  "when it comes to"...
+- **[02:00]** When it comes to music... When it comes to food...
+- **[02:09]** Oh, I love music. And when it comes to the sound...
+- **[02:15]** I absolutely love food and when it comes to 뎅장찌개...
+- **[02:20]** Your chance of getting AL is that much higher.
+- **[02:23]** Anyway, to get AL,  you have to first start answering questions in a very natural way.
+- **[02:28]** And in different ways too.
+- **[02:30]** We have 15 questions in the OPIC test.
+- **[02:33]** And you don't want to start every single question with
+- **[02:36]** "Well" or "you know"
+- **[02:37]** Those kinds of things.
+- **[02:38]** You got to change it up a little bit.
+- **[02:40]** You have to first practice changing up your answers right in the beginning.
+- **[02:44]** For instance, this person over here starts like this:
+- **[02:47]** Well, I THINK... first let me start with the similarities. I THINK...
+- **[02:51]** So natural.
+- **[02:53]** So this is good strategy to start right in the beginning  letting the (OPIC) marker know  exactly what you're going to do.
+- **[02:59]** 1. Well, I think... 2. I'm going to start talking about this first. 3. And then I'll tell you what I'm going to talk about next.
+- **[03:05]** But in a very smooth way.
+- **[03:07]** Some students...  they try to organize the question in a very rigid...  뻣뻣한 way.
+- **[03:12]** Like for example: Oh I have many things to say. First... blah, blah, blah.  Second... blah, blah, blah. Third...
+- **[03:18]** Those kinds of things.
+- **[03:19]** You don't want to do that for the OPIC test.
+- **[03:21]** Remember, you are trying to show the OPIC grader that... Hey, I don't have a script,  and I'm just answering this right on the spot.
+- **[03:28]** So when you're trying to answer big questions...
+- **[03:30]** Especially the questions that involve past and present,   you should do something like this.
+- **[03:36]** 1. Well, I think... 2. blah, blah, blah 3. I think...
+- **[03:39]** Something like that. So, for example:
+- **[03:40]** Let's say there's a question about homes and how they're so different in the past and now... You can say something like:
+- **[03:46]** 1. Well, I think... 2. homes have changed quite a bit especially with their technology. 3. You know, I think...
+- **[03:53]** And something like that.
+- **[03:54]** So --> 1. Well, I think... 2. Your MAIN POINT.  3. and then "I THINK" again!
+- **[03:58]** And then you continue your answer.
+- **[03:59]** Overall, we gather and  we have gatherings  out of necessity.
+- **[04:08]** But for students I just still recommend using "overall" in the conclusion.
+- **[04:13]** It's not that easy to use overall in the beginning.
+- **[04:16]** But what I loved about this answer is that he gave his main point right in the beginning here. He says:
+- **[04:22]** 1. We GATHER 2. and we have GATHERINGS 3. out of necessity.
+- **[04:26]** Now personally, I would put that even right in the beginning of your answer.
+- **[04:30]** That is much, much better for OPIC.
+- **[04:33]** Instead of putting it later on.
+- **[04:35]** As soon as you hear the question, I want you to answer the "main point" RIGHT AWAY.
+- **[04:40]** And then... You know, you can think about it. Or you can give some introduction or whatever.
+- **[04:44]** But put the main point right in the beginning so that the OPIC marker will know exactly what you're talking about.
+- **[04:50]** This person, he goes:
+- **[04:52]** Well, I think... let me start with the similarities... And then he goes to the main point.
+- **[04:56]** But I want you to put the main point in the beginning.
+- **[04:59]** Well, I think... people gather and have gatherings out of necessity. I think... ok, let me start with the similarities. In the past...
+- **[05:11]** Ok, something like that. If you do that, you put the main point in the beginning - much, much better.
+- **[05:15]** Now, this person over here does something amazing.
+- **[05:22]** People gather out of necessity.
+- **[05:26]** Gather 하고 또 gathering 을...
+- **[05:30]** People gather and have gatherings...
+- **[05:33]** That is the AL method.
+- **[05:34]** Let me give you some more examples.
+- **[05:35]** Let's say comparing coffee shops from the past to the present
+- **[05:39]** I think people 1. "went to" 2. and "have gone to" coffee shops in the past...
+- **[05:42]** Just like that.
+- **[05:43]** I think people  "went to" and "have gone to" coffee shops...
+- **[05:48]** Making it a little bit longer.
+- **[05:49]** Instead of simply saying: I think people went to coffee shops.
+- **[05:52]** That is the AL method.
+- **[05:53]** Ok, let me give you another example. Let's talk about fashion.
+- **[05:59]** Safe colors.
+- **[06:04]** Like something bright. Bright green or something like that.
+- **[06:09]** Black, white, navy blue, gray...
+- **[06:18]** In Korea, I think many people you know like to 1. "wear" 2. and are "wearing" safe colors because they don't want to attract  too much attention.
+- **[06:27]** People like to  "wear" and are "wearing"
+- **[06:42]** I think people "wear" and are "wearing"~
+- **[06:46]** The differences are that, however, in the past...
+- **[06:54]** In the past
+- **[06:54]** We gathered out of a physical necessity.
+- **[06:58]** We gathered to survive uh to work together so that  we can increase the number of years that we would live.
+- **[07:04]** So that we can increase the amount of food that we have.
+- **[07:07]** And overall live better lives.
+- **[07:10]** And I think over time that evolved to be more spiritual.
+- **[07:13]** Or we gathered to be more connected.
+- **[07:17]** Things like that. Um...
+- **[07:19]** Now, you have to realize this person's answer was actually very, very amazing.
+- **[07:23]** He went very deep.  Almost philosophical.
+- **[07:26]** And I don't expect the AL students trying to answer in this kind of way.
+- **[07:32]** But I do want to focus on something here.
+- **[07:34]** When he's talking about the past, he's only talking about the past.
+- **[07:38]** A lot of students when they're trying to make a comparison... you know, the similarities and the differences...
+- **[07:43]** They usually talk about the past  and then the present and then the past and then the present...
+- **[07:47]** You know, they're bouncing back and forth.
+- **[07:49]** Wasting a lot of time.
+- **[07:51]** It is actually very confusing
+- **[07:53]** But this person over here just talks about the past  and that's it.
+- **[07:57]** Very nice; very simple; easy to follow. And that's what I want you to do.
+- **[08:00]** Now in the middle of this part, he says the expression: "over time".
+- **[08:05]** Before he talks about the present,  he talks about the past, and then he talks about as time went on, and then he goes right to the present.
+- **[08:13]** 1. In the past 2. over time 3. and then "present"
+- **[08:16]** Very, very good structure.
+- **[08:17]** Even today uh when we think about gatherings, we gather in kind of a digital space. In kind of a digital space.
+- **[08:25]** And even that is ultimately because  we have this need to in some way connect to something bigger than ourselves.
+- **[08:32]** Even if it's just as simple as a discussion.
+- **[08:35]** And uh overall I think that's why
+- **[08:38]** Ok, I want to focus on the beginning part and the end part of this segment.
+- **[08:42]** He starts off the present part of his answer by saying: "even today".
+- **[08:47]** Now, the key part of this expression is the word "even".
+- **[08:51]** What he's trying to do here is that word... the... "even" is connecting the past and the present.
+- **[08:56]** He's saying that even now there's a lot of similar things.
+- **[08:59]** Very, very good.
+- **[09:00]** Later on he uses another small word  that boosts fluency.
+- **[09:04]** He says:
+- **[09:05]** When we gather we have gatherings in "kind of" a digital space.
+- **[09:09]** I'm going to repeat that one more time.
+- **[09:11]** When we gather we have gatherings in kind of a digital space.
+- **[09:14]** Now, what part of that answer is AL? Let me how you.
+- **[09:18]** We gather and have gatherings in  KIND OF a digital space.
+- **[09:23]** "Kind of".  It shows a lot of accuracy.
+- **[09:26]** Let me give you another simple typical example in normal conversation.
+- **[09:35]** I have a cold.
+- **[09:40]** I think I have a cold.
+- **[09:45]** I think I "kind of" have a "bit of" a cold.
+- **[09:49]** Kind of / a bit of
+- **[09:51]** If you use those small words, your sentences will become so much more descriptive, so much more accurate, and way more fluent.
+- **[10:05]** And uh overall I think that's why...
+- **[10:08]** Again, the structure is amazing.
+- **[10:10]** He talks only about the past and then he talks only about the present and then he tells us:  Ok, now I'm going to conclude this whole thing by saying the word "overall".
+- **[10:18]** But of course he's a foreigner and he uses a lot of fillers. Which is good. And uh... overall, I think this is why...
+- **[10:26]** Very great expression.
+- **[10:31]** The small words. "And uh I think" overall...
+- **[10:35]** Remember, it's all about the fillers and the small words.
+- **[10:39]** Gatherings... no matter what time period you live in... in some way, they'll always have some way  to be important.
+- **[10:46]** Boom! Thank you so much for that. Excellent answer!
+- **[10:53]** Gatherings no matter what time period in some way will always be important.
+- **[11:01]** No matter what.
+- **[11:07]** He's talking about gatherings... no matter what, no matter the situation, no matter the time,  it will always be important.
+- **[11:17]** If I were to give you another example... let's say talking about coffee shops...
+- **[11:21]** No matter what, coffee shops will always be popular in Korea.
+- **[11:25]** Let's say hotels:
+- **[11:26]** No matter what, hotels will always get more and more expensive because that is what business is.
+- **[11:34]** Now, the second part of what I want to talk about is the expression: "in some way".
+- **[11:39]** Again, these are nice small words that you can use to get your AL.
+- **[11:44]** Now, notice the difference here.  This is a standard IH answer:
+- **[11:47]** You know, gatherings will always be important.
+- **[11:50]** Now, this is a standard AL answer:
+- **[11:52]** You know, gatherings in some way  will always be important.
+- **[11:57]** Again, it's those small words that will get you your AL.
+- **[12:00]** And of course some idioms along the way
+- **[12:04]** I always say the more idioms you could use, the higher the quality of your answers will be.
+- **[12:08]** If you liked this kind of content, please, please, PLEASE!
+- **[12:14]** This is OPICNOJAM! BOOM!
+
+
+---
+
+<!-- Source: 오픽이 어려워졌다고 이 영상으로 자신감 뿜뿜!  AL 시리즈 학생편 011_script.md -->
+# 오픽이 어려워졌다고? 이 영상으로 자신감 뿜뿜! | AL 시리즈 학생편 011
+
+- **Video URL:** https://www.youtube.com/watch?v=RX_Q-pOFn-E
+
+## Closed Captions Transcript
+
+- **[00:00]** so Jay I heard that you had the first
+- **[00:01]** day of the dance lesson like what kind
+- **[00:04]** of dance oh yeah it was hip-hop
+- **[00:06]** Oh hip-hop like how often do you go
+- **[00:08]** there I mean it was my first day but the
+- **[00:10]** teacher told us that it was gonna be
+- **[00:11]** like three times a week three times a
+- **[00:14]** week that's pretty often maybe I should
+- **[00:16]** come with you oh my gosh please are you
+- **[00:18]** yes cuz I've always wanted to learn
+- **[00:21]** hip-hop dancing oh my gosh please come
+- **[00:23]** with pay for you Oh young away young
+- **[00:28]** don't know Aloha Ella boom
+- **[00:30]** yo picture me tonight oh yeah watch the
+- **[00:33]** goose me that in the other Bunch in chat
+- **[00:34]** can't answer in a chance a summer huh Go
+- **[00:36]** Go you're a bundle in my armor help
+- **[00:37]** you're not get hurt any coach Joe Hachem
+- **[00:39]** a saukerl ee young son good gotta pull
+- **[00:41]** Goku but I get a dick though I need time
+- **[00:43]** you know who to our button to lose your
+- **[00:44]** poise oh yeah that's true
+- **[00:53]** in what sense how did it get more
+- **[00:55]** difficult now this is just in theory
+- **[00:56]** right I'm not a hundred percent sure but
+- **[00:58]** I feel that it's getting more difficult
+- **[01:00]** because a lot of the students now are
+- **[01:03]** getting the marks high mark because I
+- **[01:05]** don't pick no Jim I'm not implying
+- **[01:08]** anything reality is that test is getting
+- **[01:11]** harder so why are they making it harder
+- **[01:12]** it must be because of the results it
+- **[01:14]** makes sense though even for like
+- **[01:15]** education like every year they do get a
+- **[01:17]** little more tough you know if a lot more
+- **[01:20]** students get the higher marks right and
+- **[01:21]** they have no choice but to make it a
+- **[01:23]** little harder target or what else
+- **[01:25]** everyone's gonna get the best man so how
+- **[01:27]** do you think they should study like or
+- **[01:29]** to prepare for their next big test
+- **[01:32]** that's a good question so basically
+- **[01:33]** there's a role play section where you
+- **[01:35]** have to pretend you're someone else so
+- **[01:37]** they'll actually give you a situation
+- **[01:39]** and then you have to literally imagine
+- **[01:41]** that you're that person in that
+- **[01:43]** situation and you have to kind of act it
+- **[01:44]** out so there's something called roleplay
+- **[01:46]** 11th that's the first roleplay question
+- **[01:48]** and it used to be mostly about money or
+- **[01:51]** purchasing okay in a retail environment
+- **[01:53]** kind of yes again behind a phone they're
+- **[01:56]** buying it
+- **[01:57]** computer whatever and basically they
+- **[01:59]** just have to interact with the other
+- **[02:01]** person and buy something right so I had
+- **[02:03]** a certain strategy for that so if money
+- **[02:05]** is involved use my strategy you're good
+- **[02:07]** but days they're changing it up it's not
+- **[02:10]** just fun one it's about like situation
+- **[02:13]** so it's kind of like a real life very
+- **[02:14]** very own scenario yeah so because of
+- **[02:17]** that you know they cannot use my money
+- **[02:19]** strategy so it's more freestyle how long
+- **[02:21]** it'd be like okay yes the test itself is
+- **[02:23]** 40 minutes Wow is 40 minutes 40 minutes
+- **[02:26]** wow that's pretty long that's what I
+- **[02:27]** yeah here at conversation 40 minutes
+- **[02:30]** that question is you're exactly and it's
+- **[02:32]** a 15 questions 15 questions so you have
+- **[02:35]** to literally time yourself because
+- **[02:36]** they're not gonna say like okay each
+- **[02:37]** question is this amount of time right so
+- **[02:39]** you have to pace yourself it's like two
+- **[02:41]** or three minutes kind of yeah I tell my
+- **[02:44]** students you know what a minute minute
+- **[02:45]** thirty is perfect some students finish
+- **[02:47]** that under twenty minutes okay so
+- **[02:50]** there's no like set timer a lot of
+- **[02:52]** students they have a misunderstanding of
+- **[02:53]** okay the longer the answer the better
+- **[02:55]** along it's not quality so that's true
+- **[02:57]** quality over if you make it longer
+- **[02:59]** there's more chance for mistakes dude
+- **[03:01]** that's exactly what I say yeah you know
+- **[03:03]** what in the end it's true so you know
+- **[03:04]** what if you're not that confident in
+- **[03:05]** something keep it simple keep it clear
+- **[03:08]** kiss keep it simple stupid that's right
+- **[03:10]** did you know that Einstein read that
+- **[03:12]** okay according to rumors but if he says
+- **[03:15]** kiss we got to keep kissing do you
+- **[03:19]** I guess free like a role play type of
+- **[03:21]** scenario which is fitting as well oh so
+- **[03:23]** I gather all those questions from
+- **[03:25]** students Pookie you know they took the
+- **[03:27]** test to tell me what the questions are
+- **[03:28]** and then if I see that all now it's kind
+- **[03:31]** of different so now I'll share
+- **[03:33]** strategies database I do yeah that's
+- **[03:36]** pretty good
+- **[03:36]** but for me it's not really about okay
+- **[03:38]** let's make a script and memorize right
+- **[03:40]** it's about the strategy I'm you
+- **[03:42]** freestyle how do you do yes it is
+- **[03:44]** getting harder but we don't have to
+- **[03:45]** worry too much cuz now this is our
+- **[03:47]** opportunity
+- **[03:48]** actually increase our English skill
+- **[03:50]** that's true you know what I mean yeah
+- **[03:52]** and then the marks will come
+- **[03:53]** right yeah bhumata no tomato
+- **[03:55]** pick-and-roll play there's the money or
+- **[03:57]** jakku so Jung sang ro / 11 a date so
+- **[04:00]** chip you reckon then did you tell my
+- **[04:01]**  you're a Bundy I think he wrote
+- **[04:03]** play 11 and don't damage your boy no
+- **[04:06]** tongue jump was a Kogi in introductory
+- **[04:08]** tire GUI Yongsan Pullman of Horsham
+- **[04:10]** don't want me to come atomically on
+- **[04:12]** Sketchup Ruben they got the Kohaku audio
+- **[04:14]** would role play 11 catches me that has
+- **[04:17]** to show many cricket dialogue ago opto
+- **[04:19]** cut Amanda Kaur hug a bunch of warm up
+- **[04:20]** Hammond sir who Taylor most of Ramones
+- **[04:22]** apoyo jugo can let me take a Tashi
+- **[04:24]** Nicole hunter inject order bagel how do
+- **[04:26]** I go ahead sir I want to eat a role play
+- **[04:27]** 11 the audio Janica can have more dance
+- **[04:30]** lessons they appear so robotic opal
+- **[04:32]** Dannon became okay gurgling didn't
+- **[04:33]** coital d-pad situation a days huh
+- **[04:36]** thought you'd get blue by there look at
+- **[04:37]** how to get women in the complicated
+- **[04:40]** hidden good job yeah can eat okay your
+- **[04:42]** friend just took his first dance lesson
+- **[04:43]** you are also considering taking it as
+- **[04:45]** well ask your friend three or four
+- **[04:47]** questions about his first class to see
+- **[04:49]** if he should sign up with him so Jay I
+- **[04:50]** heard that you had the first day of
+- **[04:52]** dance lesson like what type of dance was
+- **[04:55]** it Oh hip hop dance really I've always
+- **[04:59]** wanted to learn hip hop dancing
+- **[05:01]** how many times do you go there in a week
+- **[05:03]** Oh three times a week
+- **[05:07]** Wow maybe I should come with you what
+- **[05:10]** you're gonna pay for me to have no
+- **[05:12]** excuse not to come
+- **[05:14]** yeah definitely call me tomorrow so Jay
+- **[05:17]** I heard that you had the first day of
+- **[05:19]** dance lessons
+- **[05:20]** Oh Jay I heard that you had your first
+- **[05:21]** day of dance lessons no taboos hoodie
+- **[05:23]** guy you can hold your own roleplay 11
+- **[05:25]** hug then I'm going to give free style
+- **[05:27]** chakra hair this and I hope you do get
+- **[05:28]** your locker
+- **[05:29]** yeah II roleplay 11th when your sample
+- **[05:31]** that I can't hardly wait or how much
+- **[05:33]** exactly ghost are you gonna freestyle in
+- **[05:35]** the can you're at its Hannah wait hurry
+- **[05:36]** sir oh can the my Yoda Bundy you
+- **[05:38]** just research or a boost and ah I'm
+- **[05:40]** gonna try her to the wall up tockman it
+- **[05:42]** can't hide her locket that ahem say no
+- **[05:44]** it's under Cody that one HR has Sumida
+- **[05:46]** cool amparo head - Naomi's harm young
+- **[05:49]** Yogi's here - yamo mica head - dad you
+- **[05:52]** named axel no he did - pooping the
+- **[05:55]** change in your hassle no bikini - hunan
+- **[05:57]** a brother comida
+- **[05:58]** what type of dance was it step 2 shot
+- **[06:00]** Jima
+- **[06:01]** like what type of
+- **[06:02]** this was it step 3 honeyBun matter
+- **[06:05]** oh you're Judah oh hey pop - hey yogi
+- **[06:08]** order Joe UK reaction or stuck
+- **[06:10]** kind of gonna do judge Shoreham either
+- **[06:12]** you go to all about the pattern way the
+- **[06:14]** Harris wicked Joe huh hip-hop dance what
+- **[06:16]** hip-hop dance hip up there
+- **[06:19]** whoa hip hop dance really step 4 they're
+- **[06:22]** not opposed East f42 get you Yama - okay
+- **[06:25]** you're open to the IHS or a haircut
+- **[06:26]** akaku tsuyoku y'all got a internation -
+- **[06:29]** pooja wedding Colonel Campbell case okey
+- **[06:32]** game a turning gay home gonna any good
+- **[06:33]** in your chart and JFK madam and sir Oh
+- **[06:36]** certainly key cameraman song who rhythm
+- **[06:38]** urgent a no wait oh hey stop oh joy
+- **[06:40]** Demeter okay I'm not a yoga stockinette
+- **[06:41]** Utah man he became hominid yogi poop in
+- **[06:46]** Italy calm down you two really Buddha I
+- **[06:49]** don't wait the hard to get you are you
+- **[06:50]** serious for real
+- **[06:51]** yogi so for real heart there's imminent
+- **[06:54]** okay you think it to limit that for real
+- **[06:56]** oh yeah that's interesting
+- **[06:58]** oh really I've always wanted to learn
+- **[07:00]** hip-hop dancing Steph five haggler
+- **[07:03]** whoo I'm able to I've always wanted to
+- **[07:05]** learn hip-hop dancing Kyoto boom steps
+- **[07:07]** three and four nun who's hung there by
+- **[07:09]** Iggy Hannah gonna repeat the diamond saw
+- **[07:11]** would he come jogger jump oil jimin's
+- **[07:13]** huh younger Hannon going yogi Step five
+- **[07:15]** inin would egaku stand upon him a tango
+- **[07:17]** at his home - kissing a girl Helen Jeep
+- **[07:20]** Eugene Graham he five steps to take a
+- **[07:22]** cantilever jima massager communications
+- **[07:24]** her luck today oh my oh my Sumida I want
+- **[07:26]** to bro play 11 inch human art enjoyed
+- **[07:29]** this and I hope you recognize him at
+- **[07:30]** enjoyment Amita yogi steps two three
+- **[07:32]** four five winners in Wantagh Hammond
+- **[07:35]** Hale step one Apache repeat a little
+- **[07:37]** degree Oh homie how about my own game
+- **[07:38]** take it you how many times you
+- **[07:40]** go there in a week oh three times a week
+- **[07:45]** chayo he's gonna record a step to the
+- **[07:47]** tickets Harrison you go yogi step two
+- **[07:49]** ninja to bond to Germany Joe how many
+- **[07:51]** times do you go there in a week and this
+- **[07:54]** has a continually you're gonna know more
+- **[07:55]** oka Seneca and I'll get you merely a
+- **[07:57]** controller he broke a know how often are
+- **[08:00]** you thinking about going
+- **[08:01]** no he time in Dakota step three tickets
+- **[08:03]** how to sir Oh three times a week he
+- **[08:05]** stepped through the Kanako you could
+- **[08:07]** injure paddle hey Burgess humor
+- **[08:08]** accustomed me down in the toy to turn on
+- **[08:10]** that for hat was that five tycoon
+- **[08:12]** economists a bunch of German Italian
+- **[08:14]** game Carson don't go customer doesn't
+- **[08:16]** step four and step five hunka burnin
+- **[08:17]** okay oh oh yeah I think that's something
+- **[08:19]** I could do as well
+- **[08:20]** Wow maybe I should come with you what
+- **[08:23]** you're gonna pay for me too I mean no
+- **[08:25]** excuse not to come
+- **[08:27]** yeah definitely call me tomorrow Tata
+- **[08:29]** boys Yogi's it's hard to hustle recoded
+- **[08:31]** yoga teacher how does to me that don't
+- **[08:33]** hinge it would he step to go ahead Wow
+- **[08:35]** maybe I should come with you condemned
+- **[08:37]** as step three dick I come against Joe
+- **[08:39]** what you're gonna pay for me two times a
+- **[08:41]** yogi tell me step for the Hareton and a
+- **[08:44]** poet China gusta buncha to moon mm
+- **[08:46]** connect ooh step for the skip Huckle
+- **[08:48]** paddle step five with Oldcastle
+- **[08:50]** no excuse not to come definitely call me
+- **[08:53]** tomorrow
+- **[08:54]** no he's so stable teach human ancho
+- **[08:55]** Ponte Djimon Hounsou budgets ammonia
+- **[08:57]** can't holiday Hanna Yunnan kupatana jump
+- **[08:59]** target pointing where that can either
+- **[09:01]** karamaneh
+- **[09:01]** to OPEC raid early cattle I'm Nikki Coco
+- **[09:04]** you're a bundle a communication tool a
+- **[09:06]** girl you John require who know yo get
+- **[09:08]** step for the hit team are coming up I'm
+- **[09:10]** gonna miss you man I'm not include the
+- **[09:11]** eBay store how more hippo sales you
+- **[09:13]** turning me de I what's in your boom
+- **[09:15]** nobody the Ebro play 11 keep on her luck
+- **[09:17]** today
+- **[09:17]** I need young sir promised a master date
+- **[09:19]** a me on you know step through capital
+- **[09:21]** tale
+- **[09:21]** you don't elect an important in Canada
+- **[09:23]** yeah you're a bullet a was Hector
+- **[09:25]** attachements home go low in say you
+- **[09:27]** don't selected her case our kupuna oil
+- **[09:29]** chemical open grader disease it's just
+- **[09:31]** scripted or and icky comida we're just
+- **[09:33]** cryptically confectionery boons you
+- **[09:35]** really current a llamo kombucha to grow
+- **[09:38]** together territory in the pump up the
+- **[09:39]** don't have a pair poor guy Oh Nicole de
+- **[09:46]** gallo water you are working at SEMA
+- **[09:52]** Cuauhtemoc kept a Cassidy companion
+- **[09:55]** Tomica said the body Tara unknown okay
+- **[09:57]** good I thought they got your pom-pom
+- **[09:59]** Bhavana cold up s holes all they got cuz
+- **[10:01]** how am I want to touch it water on them
+- **[10:03]** because I'd see or call they got KOCO
+- **[10:07]** dodging in in like how much money I get
+- **[10:09]** it how do mundo otaku hugging the no
+- **[10:12]** Severus song like a blue sit down
+- **[10:13]** darling come on Barney hey saw Chris a
+- **[10:15]** cold record a guy owns everyone yes the
+- **[10:17]** era demasiado simple and look to see him
+- **[10:19]** yoshiya Rome could go to Tom and you
+- **[10:21]** support them on what time I said hepta
+- **[10:22]** do you have the time what time is it now
+- **[10:25]** over time it is you don't get home
+- **[10:27]** john-boy pillaji second you know what ah
+- **[10:39]** good TV alignment they are acting upon
+- **[10:43]** iike honking Adam said to bring gamma Fe
+- **[10:45]** onekotan good as all not to be going oh
+- **[10:49]** goodness awesome they got Chief Jim
+- **[10:51]** words how I give years on children take
+- **[10:53]** a chip on each watchin and them second
+- **[10:55]** ayah we could ever touch it you know how
+- **[10:56]** adorable Bo
+- **[10:59]** non-inclusive would he feels on a dongha
+- **[11:00]** rather my romantic abandon what to our
+- **[11:03]** Hannah wattage wah hey you to me and
+- **[11:06]** take it
+- **[11:06]** Tonya momentum the conga organic yes
+- **[11:12]** organic angora dongha couldn't go to
+- **[11:15]** hear someone of happiness all on Truman
+- **[11:16]** I see my student there hustling Tonya
+- **[11:19]** good was harmed anyway I'm at Siemens
+- **[11:21]** all couch y'all memory cutting a keypad
+- **[11:24]** or go hang our hat on that shortcut to
+- **[11:25]** go don't you to charge us women watching
+- **[11:28]** Hollywood anything de novo rather go
+- **[11:31]** they are you're gonna have the printed a
+- **[11:33]** reproduction all curious hammering this
+- **[11:36]** here you come oh no
+
+
+---
+
+<!-- Source: 직접화법 사용하면 오픽 AL은 내꼬얌!  오픽 11 가이드 004_script.md -->
+# 직접화법 사용하면 오픽 AL은 내꼬얌! | 오픽 1:1 가이드 004
+
+- **Video URL:** https://www.youtube.com/watch?v=fyrLr4OLlu8
+
+## Closed Captions Transcript
+
+- **[00:00]** no we're young you know boom woman hey
+- **[00:04]** el choclo gotcha
+- **[00:06]** EP do new direct quotations that all
+- **[00:09]** together talk about us we never get
+- **[00:13]** a man up on to the error when I'm gonna
+- **[00:15]** take a boonie emitter air upon the
+- **[00:17]** incentive come to Montana
+- **[00:18]** Sookie resume Erica permanent akivasha
+- **[00:21]** keep Waco cricket amanda gets ham seung
+- **[00:24]** cheon imminent yeah yeah her pademelon
+- **[00:26]** india Taschen opener computer and i
+- **[00:28]** suing them could put on each other clear
+- **[00:30]** go to chair Kuni you wanted blue
+- **[00:32]** putin i oh yeah Julia Oh Pedro to give
+- **[00:34]** us a song oh man IH palace oh no no to
+- **[00:37]** give out herself
+- **[00:38]** oh I ate a song Kenan
+- **[00:42]** hey yeah air pendant you know gotcha get
+- **[00:48]** your candy
+- **[00:49]** you don't get to remote I don't seem to
+- **[00:50]** the permanent yet it risotto wake Sunnah
+- **[00:53]** and so on Conan your mom didn't come
+- **[00:56]** sooner tarpanam she yogiji to ki yong
+- **[00:59]** hwa she lugar coitus Regina come to da
+- **[01:02]** choppah do you know what hey what're
+- **[01:03]** chrome-dome outcomes harmonic same data
+- **[01:05]** on too much on I can they opened a
+- **[01:07]** limiter Ricky will pick al check out
+- **[01:10]** your ticket Jim I'm not on a uh a single
+- **[01:12]** chicken boy on the John Doe your mother
+- **[01:14]** jumped haha - like we are popular take
+- **[01:16]** it with tannin AR hot singer as you can
+- **[01:18]** see from Anderson Oh pick a are you
+- **[01:20]** watching young can your eider brother
+- **[01:21]** swing up on Michael Poggi Marco do you
+- **[01:24]** tell your ma she lucky I admit your
+- **[01:26]** mother see rehearsal ooh hmm
+- **[01:27]** don't worry man is handsome come Buddha
+- **[01:29]** up let me help you with your
+- **[01:30]** natural English so that you could attain
+- **[01:33]** your Al mark naturally let's begin in
+- **[01:36]** OPIC there are three main combo sets
+- **[01:38]** that's a total of nine questions
+- **[01:41]** Cuomo searching in a gadget when you get
+- **[01:43]** good no description past experience
+- **[01:45]** habit and comparison yogi when choking
+- **[01:48]** the twin salmon swimming leader optic is
+- **[01:50]** higher Hammond saw eat description to
+- **[01:52]** mandara up ticketed upper hand G because
+- **[01:54]** her manechan I owe you my a new
+- **[01:56]** low G minor don't get a boo-boo sale I
+- **[01:57]** want an EP didn't do pochittona past
+- **[01:59]** experience sitter ought to get it up her
+- **[02:01]** head energy chica chasse's hermanita
+- **[02:04]** yogi boo mignon main point to catch okay
+- **[02:06]** channel
+- **[02:06]** koichi maintainer main point to Capitola
+- **[02:08]** Minotaur cheeky main point to gulps
+- **[02:10]** imminent Hey
+- **[02:11]** Mandarin Kohaku piripi um John Doe olive
+- **[02:13]** good New York very young super happy
+- **[02:14]** main points to policing of her swinging
+- **[02:17]** up and over chatter damn it I couldn't
+- **[02:18]** get you monitor dead no detail cutting a
+- **[02:20]** single Margo can even point to my
+- **[02:22]** single committed midnight so she came a
+- **[02:24]** point to my scimitar sir couldn't you
+- **[02:25]** could you go to a fillers happy feelings
+- **[02:27]** girl I'm jumpy language on filler sir
+- **[02:28]** Samana Ananas cryptical abduction
+- **[02:31]** the demon Abu we go tada / hurt then
+- **[02:33]** come John Polk a second side EG detail
+- **[02:35]** pocus choker command I mean they're
+- **[02:37]** gonna young Superman together a Tsubaki
+- **[02:39]** officer but this is very crucial I do
+- **[02:41]** not want you guys to be detail-oriented
+- **[02:43]** instead these in any question I want you
+- **[02:46]** guys to be dealings oriented I'm a yogi
+- **[02:48]** past experience here main points of a
+- **[02:50]** Seneca Indiana okay so free star Hammond
+- **[02:52]** so conclusion Hammond Tomita yogi to me
+- **[02:54]** Oh Sammy tableman you got your Akagi
+- **[02:56]** past experience demon dessert domino
+- **[02:58]** game open Shearman end combo set that
+- **[03:00]** you get number to an even number three
+- **[03:02]** good on you I'm attune take an e Semper
+- **[03:04]** human ears are okay tell me what
+- **[03:06]** recycling was like when you were a child
+- **[03:08]** was there a particular place to which
+- **[03:10]** you took out the recyclables describe
+- **[03:13]** what it was like and what you did in
+- **[03:14]** detail ha
+- **[03:15]** each human or Yoshi go home until
+- **[03:17]** midnight I'm at the main point to get
+- **[03:18]** Peter ha Joe in the feelers in an Sonora
+- **[03:20]** game when I'm in his head on her mother
+- **[03:21]** on Jess I didn't tell any can you
+- **[03:23]** recycling hmm hey that's pretty
+- **[03:26]** interesting when I was a child I would
+- **[03:28]** have to say that you know recycling was
+- **[03:30]** quite organized I mean at least in my
+- **[03:32]** home anyway chayo get adapt sheet a
+- **[03:35]** groaner Nana script obseunikka changuk
+- **[03:37]** await the coupon and egg apoyo you go
+- **[03:39]** konami pero main point zero castle he
+- **[03:41]** main point who enjoy I can freestyle a
+- **[03:43]** pedo ham and salt humdrum focus no
+- **[03:45]** Hammond saw Abraham me a nun don't you
+- **[03:47]** two minutes hi dear Tsubaki upset I'm
+- **[03:48]** watching yoginah past experience with
+- **[03:50]** you mooning again past experience to my
+- **[03:52]** Yankee hit reception my present
+- **[03:54]** experiences or anguish permanent hodjam
+- **[03:56]** take chunky okay here they go
+- **[03:58]** how much the main pocus Annette has the
+- **[04:00]** experience in me that you need also
+- **[04:02]** either cam intimate now that I think
+- **[04:03]** about it I remember specifically my
+- **[04:06]** mother you know giving me the lowdown on
+- **[04:09]** how to recycle and then you know not
+- **[04:12]** before long it became my full
+- **[04:14]** responsibility it was a little bit
+- **[04:16]** annoying at times but I mean I had no
+- **[04:19]** choice anyway I learned to separate the
+- **[04:22]** cans
+- **[04:22]** paper
+- **[04:23]** glass in plastics and you know put them
+- **[04:27]** in their rifle bins cha yogi ditch one
+- **[04:29]** TW yo can I start to get man y'all
+- **[04:31]** opened it again
+- **[04:32]** you dick your freestyle I mean she kind
+- **[04:34]** of coalition to each other and they eat
+- **[04:35]** meals I'm listening I'm more level Hawk
+- **[04:37]** singing okay AR Joker car suing the
+- **[04:40]** bamboo bird I'm super hot namitha
+- **[04:42]** Curitiba model direct quotations direct
+- **[04:45]** quotations to the sim in Europe under
+- **[04:47]** the ginger capocaccia to the common yogi
+- **[04:49]** permanent I come out of the freezer
+- **[04:50]** talkative Naoki - in Ghana yogi by
+- **[04:53]** component I wrecked coat Asians Sam
+- **[04:55]** police I don't I shake up or kill now
+- **[04:57]** that I think more about it I remember
+- **[04:59]** specifically my mother giving me the
+- **[05:02]** lowdown on how to recycle she was like
+- **[05:05]** Sam make sure to separate everything
+- **[05:08]** Leo monami you can hand him my economic
+- **[05:11]** Umehara I read quotation Normandin go
+- **[05:13]** ahead sir Jackie you the Kanaka eat
+- **[05:15]** elevate all dynamic didn't I Oh Kirk a
+- **[05:17]** man again I'm under the past experience
+- **[05:19]** it they don't have ever hurt them but
+- **[05:20]** don't answer I mean 90 either ki get hit
+- **[05:22]** that Kugler pure aluminum to kill y'all
+- **[05:25]** I put even more so just a minute all
+- **[05:26]** clear I get to the committee no Guinea
+- **[05:28]** enjoy eating risotto Sam could you go to
+- **[05:30]** a talent young un Megan a hanja you look
+- **[05:32]** a single how we stopped a cure direct
+- **[05:34]** quotation or pure I wish permanent you'd
+- **[05:35]** okay she shot coming to me I thought to
+- **[05:37]** myself any meal and I was like that
+- **[05:39]** crunchy could really dress coffee shop
+- **[05:41]** idiot so they came up she I decided to
+- **[05:43]** try out a new coffee shop nearby my home
+- **[05:46]** that um you know just opened up when I
+- **[05:49]** got there americano I thought to myself
+- **[05:51]** holy cow this is amazing and um it truly
+- **[05:56]** was I mean I couldn't believe how
+- **[05:59]** wonderful it tasted tigey's hanging out
+- **[06:00]** apparent I wish for dinner whose hanger
+- **[06:02]** come jungle road take it jacket you
+- **[06:04]** should I read quotations and then OPEC
+- **[06:06]** head up a I can climax in the Dominican
+- **[06:08]** pokey grandmother telling me on on take
+- **[06:10]** a country totally go Danielle chronic at
+- **[06:12]** JFK a mental issue in enchanted garage
+- **[06:14]** you get you have underboob she Anika did
+- **[06:16]** her I was in chandrayaan-2 practice the
+- **[06:18]** art Gammons ha now you get jumped on I
+- **[06:20]** get a minute come to talk Iike her
+- **[06:22]** spacer I'm attorney on a boom past
+- **[06:23]** experience are you get hurt a direct
+- **[06:26]** quotations in their solution you tell me
+- **[06:28]** you're open to therapy
+- **[06:29]** Mukherjee tilaka
+- **[06:30]** this opaque dojin who don't come on like
+- **[06:34]** hug or air choke little cutter boom
+
+
+---
+
+<!-- Source: 첫 5초 시작이 엄청 중요하다!  AL 시리즈 학생편 004_script.md -->
+# 첫 5초 시작이 엄청 중요하다! | AL 시리즈 학생편 004
+
+- **Video URL:** https://www.youtube.com/watch?v=lzOFxAqb7ds
+
+## Script & Description
+
+
+---
+
+<!-- Source: 필러 사용방법, 음악문제로 연습하자!  오픽 외국인편 005_script.md -->
+# 필러 사용방법, 음악문제로 연습하자! | 오픽 외국인편 005
+
+- **Video URL:** https://www.youtube.com/watch?v=F7VmN7PcpMs
+
+## Closed Captions Transcript
+
+- **[00:22]** How did you first get interested in music?
+- **[00:26]** What kind of music did you listen to  when you were young?  How is that music different from  the music you listen to today?
+- **[00:33]** How has your interest in music changed over the years?
+- **[00:37]** Interesting
+- **[00:40]** Interesting
+- **[01:01]** Music? Hmm... interesting.
+- **[01:11]** Music... hmm, interesting
+- **[01:22]** You could do this for any topic.  Let's say there's a question about your first experience  at a coffee shop.
+- **[01:29]** Coffee shop... hmm, let me see... ok, here we go.
+- **[02:02]** It helps me to speak a little bit faster,  but you should choose whatever's most easiest for you
+- **[02:07]** I would have to say my biggest influence in music is probably growing up in my mother's house
+- **[02:14]** I would have to say my biggest influence in music is probably growing up in my mother's house.
+- **[02:31]** Those are also very good.  But on your OPIC test...
+- **[02:34]** You must at least once say: "I would have to say".  It's something that I highly recommend.  It will make you sound so good.
+- **[02:43]** My friend introduced me to hip-hop music.
+- **[02:49]** I would have to say...
+- **[03:05]** My biggest influence in music is my mother.
+- **[03:23]** It's probably my mother 아니고...  is probably growing up in my mother's house
+- **[03:29]** It honestly shows pure accuracy.  And it also shows duration of time.
+- **[03:34]** So whenever you're talking about a past experience especially about your childhood  using this word "growing up"  is something I highly recommend.
+- **[03:55]** When I was a child, oh, I remember my friend  introducing me to hip hop music...
+- **[04:17]** And so to avoid this...
+- **[04:23]** When it comes to music...
+- **[04:26]** In my elementary days, I started listening to 김건모. And when it comes to his songs... my favorite would have to be 아름다운이별.
+- **[04:34]** Putting it in the middle somewhere is just so much better.
+- **[04:40]** My mother was a... a disco girl. So, she loved a lot of disco.  Um, and uh at that time that was really popular... you know uh "Hall and Oates".
+- **[04:50]** My mother was a... a disco girl.
+- **[04:56]** The pausing.
+- **[04:59]** My mother was a... um... disco... mmm... girl.
+- **[05:04]** Too many silent pauses.
+- **[05:29]** My mother liked disco.
+- **[05:34]** Girl, guy, person...
+- **[05:38]** I'm a Nutella guy.  I'm a phone dude.  I'm definitely a tea guy.  I'm a people person
+- **[05:46]** So in this case, he mentions that his mother was  a disco girl and then on his next sentence he kind of describes a little more...
+- **[05:53]** She loved a lot of disco.  So he's repeating exactly what he's saying
+- **[05:57]** My mother was a disco girl and because  she's a disco girl, she loved a lot of disco.  Very very good.
+- **[06:12]** You know, I mean, um, uh, like...
+- **[06:21]** Here's another combo filler set.
+- **[06:31]** This is mid 80's.  Um, you know uh Simon and Garfunkel... Paul Simon... Um Jim Croce...
+- **[06:50]** Here's another example. I absolutely love Starbucks.  Um, you know uh their price is not that cheap... but I think it's still very worth it.
+- **[07:06]** Now, this is how you practice fillers. Fillers should come naturally as you are thinking.
+- **[07:10]** So, when you say a sentence, and then you're thinking... that's when you use a filler.
+- **[07:14]** Every time you answer an OPIC question,  your fillers positioning should always be different... because you always think in different times.
+- **[07:28]** And I... I would consider that folk music.  So, I like... I really like folk music.
+- **[07:59]** And now, I think that folk music has lead me into... getting into... more into Jazz... because it's very similar.
+- **[08:07]** Jazz and the folk music.  And the jazz lead me into hip-hop. And now I've become a hip-hop fan.
+- **[08:30]** Phrases, expressions, 생각하는 strategy, fillers...
+- **[08:52]** You know, at first, I didn't like beer.  But when I kept trying it over time,  I started to really love it. And then it eventually lead me to other types of alcohol... like vodka and whiskey.
+- **[09:11]** I didn't like beer at first,  but now, I've become a true beer fan.
+- **[09:21]** I didn't like beer at first,  but now I've become a true beer guy.
+- **[09:26]** So, I think overall,  because my mom introduced me to folk music...
+- **[09:30]** It lead me into jazz,  and then finally into hip-hop... which is now, my love.
+- **[09:48]** Oh, it's so smooth.
+- **[10:03]** But honestly, I personally would also say "my love".
+- **[10:07]** I didn't like beer at first,  but now it has become my love.
+
+
+---
+
