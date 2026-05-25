@@ -1,0 +1,61 @@
+# 필러 사용방법, 음악문제로 연습하자! | 오픽 외국인편 005
+
+- **Video URL:** https://www.youtube.com/watch?v=F7VmN7PcpMs
+
+## Closed Captions Transcript
+
+- **[00:22]** How did you first get interested in music?
+- **[00:26]** What kind of music did you listen to  when you were young?  How is that music different from  the music you listen to today?
+- **[00:33]** How has your interest in music changed over the years?
+- **[00:37]** Interesting
+- **[00:40]** Interesting
+- **[01:01]** Music? Hmm... interesting.
+- **[01:11]** Music... hmm, interesting
+- **[01:22]** You could do this for any topic.  Let's say there's a question about your first experience  at a coffee shop.
+- **[01:29]** Coffee shop... hmm, let me see... ok, here we go.
+- **[02:02]** It helps me to speak a little bit faster,  but you should choose whatever's most easiest for you
+- **[02:07]** I would have to say my biggest influence in music is probably growing up in my mother's house
+- **[02:14]** I would have to say my biggest influence in music is probably growing up in my mother's house.
+- **[02:31]** Those are also very good.  But on your OPIC test...
+- **[02:34]** You must at least once say: "I would have to say".  It's something that I highly recommend.  It will make you sound so good.
+- **[02:43]** My friend introduced me to hip-hop music.
+- **[02:49]** I would have to say...
+- **[03:05]** My biggest influence in music is my mother.
+- **[03:23]** It's probably my mother 아니고...  is probably growing up in my mother's house
+- **[03:29]** It honestly shows pure accuracy.  And it also shows duration of time.
+- **[03:34]** So whenever you're talking about a past experience especially about your childhood  using this word "growing up"  is something I highly recommend.
+- **[03:55]** When I was a child, oh, I remember my friend  introducing me to hip hop music...
+- **[04:17]** And so to avoid this...
+- **[04:23]** When it comes to music...
+- **[04:26]** In my elementary days, I started listening to 김건모. And when it comes to his songs... my favorite would have to be 아름다운이별.
+- **[04:34]** Putting it in the middle somewhere is just so much better.
+- **[04:40]** My mother was a... a disco girl. So, she loved a lot of disco.  Um, and uh at that time that was really popular... you know uh "Hall and Oates".
+- **[04:50]** My mother was a... a disco girl.
+- **[04:56]** The pausing.
+- **[04:59]** My mother was a... um... disco... mmm... girl.
+- **[05:04]** Too many silent pauses.
+- **[05:29]** My mother liked disco.
+- **[05:34]** Girl, guy, person...
+- **[05:38]** I'm a Nutella guy.  I'm a phone dude.  I'm definitely a tea guy.  I'm a people person
+- **[05:46]** So in this case, he mentions that his mother was  a disco girl and then on his next sentence he kind of describes a little more...
+- **[05:53]** She loved a lot of disco.  So he's repeating exactly what he's saying
+- **[05:57]** My mother was a disco girl and because  she's a disco girl, she loved a lot of disco.  Very very good.
+- **[06:12]** You know, I mean, um, uh, like...
+- **[06:21]** Here's another combo filler set.
+- **[06:31]** This is mid 80's.  Um, you know uh Simon and Garfunkel... Paul Simon... Um Jim Croce...
+- **[06:50]** Here's another example. I absolutely love Starbucks.  Um, you know uh their price is not that cheap... but I think it's still very worth it.
+- **[07:06]** Now, this is how you practice fillers. Fillers should come naturally as you are thinking.
+- **[07:10]** So, when you say a sentence, and then you're thinking... that's when you use a filler.
+- **[07:14]** Every time you answer an OPIC question,  your fillers positioning should always be different... because you always think in different times.
+- **[07:28]** And I... I would consider that folk music.  So, I like... I really like folk music.
+- **[07:59]** And now, I think that folk music has lead me into... getting into... more into Jazz... because it's very similar.
+- **[08:07]** Jazz and the folk music.  And the jazz lead me into hip-hop. And now I've become a hip-hop fan.
+- **[08:30]** Phrases, expressions, 생각하는 strategy, fillers...
+- **[08:52]** You know, at first, I didn't like beer.  But when I kept trying it over time,  I started to really love it. And then it eventually lead me to other types of alcohol... like vodka and whiskey.
+- **[09:11]** I didn't like beer at first,  but now, I've become a true beer fan.
+- **[09:21]** I didn't like beer at first,  but now I've become a true beer guy.
+- **[09:26]** So, I think overall,  because my mom introduced me to folk music...
+- **[09:30]** It lead me into jazz,  and then finally into hip-hop... which is now, my love.
+- **[09:48]** Oh, it's so smooth.
+- **[10:03]** But honestly, I personally would also say "my love".
+- **[10:07]** I didn't like beer at first,  but now it has become my love.

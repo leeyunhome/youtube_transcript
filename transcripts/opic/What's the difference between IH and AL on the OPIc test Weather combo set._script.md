@@ -1,0 +1,267 @@
+# What's the difference between IH and AL on the OPIc test? Weather combo set.
+
+- **Video URL:** https://www.youtube.com/watch?v=bkbI39plph0
+
+## Closed Captions Transcript
+
+- **[00:00]** Come here to turn your English from ZERO to HERO!  영어의 0도 몰르면 1로와!
+- **[00:02]** Boomers! 여러분!
+- **[00:03]** In this video, I will show you  이번 영상에서는,
+- **[00:04]** the differences between IH and AL.  IH와 AL의 차이점에 대해 보여줄건데요.
+- **[00:07]** We will take a look at how AL is so different from IH.  IH와 AL이 어떻게 다른지 볼거에요. 
+- **[00:12]** By answering a full combo set about weather.  날씨 콤보세트 대답으로 살펴보겠습니다.
+- **[00:14]** We will analyze 3 answers from 3 different students.  세 학생의 3가지 답변을 분석할거에요.
+- **[00:18]** This video will focus on the first student. 이 영상은 첫 번째 학생입니다.
+- **[00:21]** And if you like this type of feedback video... 이 피드백 영상이 좋다면...
+- **[00:23]** 500 likes  좋아요 500개가 되면 
+- **[00:25]** will unlock the 2nd video of this combo set.  이 콤보세트 두번째 영상을 올리겠습니다.
+- **[00:28]** So whatchu waitin' for?! 니 뭐하소?!
+- **[00:29]** Smash that like button! 좋아요 눌러주소!
+- **[00:31]** One of my favorite topics is weather. 날씨는 제가 좋아하는 주제인데요.
+- **[00:33]** Not only is it great for OPIc... 오픽에서 뿐만 아니라...
+- **[00:35]** But it's also a great topic for you to practice.  그냥 연습하기에도 좋은 주제입니다.
+- **[00:38]** Especially when you wanna get better with small talk. 특히 간단한 대화를 더 잘하고 싶을 때 좋아요.
+- **[00:40]** When I first came to Korea, I went on an elevator.  제가 한국에 처음왔을 때, 엘리베이터를 탔어요.
+- **[00:43]** And there was a lady there.  거기서 어떤 아줌마가 있었는데.
+- **[00:45]** Now, in Canada, elevators can be quite awkward.  원래 캐나다는 엘리베이터 상황에 너무 어색하거든요.
+- **[00:49]** And so, to break that awkwardess,  we engage in small talk. 그러니까, 우리 대화해요,
+- **[00:51]** And the easiest way to do this is to talk about weather. 거의 날씨에 대해서 이야기 하던지.
+- **[00:52]** Kind of like this:  아무튼 이런식으로:
+- **[00:53]** Oh, it's getting pretty hot today, eh?  오, 점 점 더워지네요.
+- **[00:55]** And so, this is what I said to her.  근데, 그 아줌마한테 제가 이렇게 말했어요.
+- **[00:57]** I also wanted to practice more Korean.  아무튼 저는 한국말을 좀 더 배우고 싶으니까.
+- **[00:59]** Wow, such gorgeous weather today, right?  참, 오늘 날씨가 풀리네요?
+- **[01:01]** As soon as I said that, she was like:  이렇게 했는데, 그 아줌마가 저한테:
+- **[01:03]** "Who in the world is this crazy dude?!"  "이 미친놈이 누구노?!"
+- **[01:04]** She looked at as if she actually said that. 이렇게 쳐다 보더라구요.
+- **[01:06]** I was totally shocked out of my mind.  깜짝 놀랐습니다.
+- **[01:07]** That is when I realized ... 저는 그때 알았어요...
+- **[01:08]** Koreans do not like to talk with strangers. 한국사람들은 낯선사람과 이야기하는걸 싫어하는 구나.
+- **[01:11]** And I cannot blame them. 비난하는게 아니네요.
+- **[01:12]** I understand why.  왜 그러는지 이해해요.
+- **[01:13]** But it is not something that I'm used to.  단지 제게 익숙하지 않았을 뿐이에요.
+- **[01:15]** Anyway, I think small talk is a type of skill.  무튼, 간단한 대화도 기술이에요.
+- **[01:18]** That is useful everywhere.  어느곳에서든 유용하죠.
+- **[01:20]** And if you really wanna get better at it,  그리고 이런 사소한 대화를 더 잘하고 싶다면,
+- **[01:21]** Weather is a topic that you should definitely master. 날씨가 여러분이 마스터해야 하는 중요한 주제입니다.
+- **[01:24]** If you've taken the test many times,  시험을 여러번 봤는데,
+- **[01:26]** And still cannot get AL, 아직도 AL을 못 받았다면,
+- **[01:28]** Then this video is for you.  이 영상이 많은 도움이 될겁니다.
+- **[01:30]** And also, if you are an IM1/2/3 student, 또, IM1/2/3 학생인데,
+- **[01:35]** And still can't seem to get IH no matter what you do,  아직도 IH를 못 받았다면,
+- **[01:38]** Then this video will definitely help you get that IH mark. 이 영상이 IH를 받을 수 있게 도와줄거에요.
+- **[01:41]** And before we listen to how they answer. 학생들의 대답을 듣기 전에.
+- **[01:43]** I want to explain why the look of my subtitles have changed. 여기 자막에 대해서 약간 설명하고 싶어요.
+- **[01:46]** The style of my subtitles have changed, right? 여기 자막이 생긴게 약간 달라졌죠.
+- **[01:48]** I noticed some students wanted  to improve their listening ability. 어떤 학생들은 듣는거에 대해서 더  연습하고 싶으니까
+- **[01:52]** That's why they told me they preferred videos  without subtitles.  자막이 없는게 좋다고 얘기 했어요.
+- **[01:54]** And of course there were other students...  근데 또 어떤 학생들은...
+- **[01:55]** ...who told me they totally depended on subtitles.  ...자막이 되게 필요하다 이렇게 얘기 하니까.
+- **[01:58]** So I tried to think of a way to make both parties happy. 제가 어떻게 하면 두 학생을  행복하게 할 수 있는 방법이 있는지 생각해 봤더니.
+- **[02:03]** This is how I discovered this method of adding subtitles. 이 방법으로 발견했어요.
+- **[02:05]** If you want it, you can simply turn it on.  원하시면, 그냥 "on"해도 되고.
+- **[02:07]** But if you want to practice more listening skills, 영어 듣는거에 대해서 더 연습하고 싶으면은,
+- **[02:09]** You can simply turn it off.  "off"해도 되고.
+- **[02:10]** Now that you have this option,  이제는 그 옵션이 있으니까,
+- **[02:11]** Do whatever that suits you. 여러분에게 맞는 걸로 해주세요.
+- **[02:13]** Alright, let's get it, LEGO!
+- **[02:15]** Weather in Korea...  한국날씨...
+- **[02:16]** Alright, what I like about how this student started... 이 학생은 시작이 너무 좋아요...
+- **[02:18]** ..is that she's using the words in the question. ...질문에 있는 단어를 사용했는데요.
+- **[02:21]** As she's thinking about what she's gonna say next. 그러면서 다음에 말 할 내용을 생각하고 있어요.
+- **[02:24]** Weather in Korea...  한국 날씨...
+- **[02:25]** Now, as she's doing this,  이 학생은 이렇게 하면서,
+- **[02:27]** She goes right to the next sentence almost immediately. 거의 바로 다음 문장을 말해요.
+- **[02:30]** This is actually a very natural thing to do. 너무 자연스러운데요.
+- **[02:32]** You know, I watched the news this morning. 오늘 아침에 뉴스를 봤어요.
+- **[02:34]** Now, take a look at this strategy. 자, 여기 전략을 한번 봐보세요.
+- **[02:36]** Even though this is not question #15,  15번 질문은 아니지만,
+- **[02:38]** She still uses "news" to answer this question.  대답 할 때 "뉴스" 단어를 사용했어요.
+- **[02:42]** And look how natural this sounds.  그리고 얼마나 자연스러운지 봐보세요.
+- **[02:44]** I watched the news this morning.  나는 오늘 아침에 뉴스를 봤다.
+- **[02:46]** This sentence really makes her sound... 이 문장은 이 학생이 ...
+- **[02:48]** ...like she's actually thinking on the spot.  ... 그 자리에서 바로 생각하고 있는것 처럼 보여줘요.
+- **[02:50]** And now, it really seems like ... 그리고, 이제...
+- **[02:52]** ...she's just sharing what she saw on the news.  ...그 뉴스를 우리에게 말해줄것 처럼 보여요.
+- **[02:55]** The funny thing is if this was question #15, 만약 진짜 15번 문제 였다면,
+- **[02:58]** She can pretty much say the exact same answer. 똑같은 대답을 해도 되요.
+- **[03:00]** It's a pretty good strategy.  정말 좋은 전략이에요.
+- **[03:01]** It said we have tons of fine dust in the air. 뉴스에서 미세먼지가 엄청 많데요.
+- **[03:07]** Now, this sentence over here:  자, 여기 문장을 봐보세요:
+- **[03:08]** It said we have tons of fine dust in the air.  뉴스에서 미세먼지가 엄청 많데요.
+- **[03:12]** Tons of fine dust...
+- **[03:13]** It is a pretty good sentence. 좋은 문장이에요.
+- **[03:15]** But I feel like it's kind of in the IH level.  하지만 이건 IH 수준이이에요.
+- **[03:18]** Now, if you want to push this to AL,  만약 AL을 받고 싶다면,
+- **[03:20]** You could say something like this: 이렇게 말하면 됩니다:
+- **[03:21]** We have a serious fine dust problem.  우리는 심각한 미세먼지 문제가 있어요.
+- **[03:24]** And now, let's take a look at this sentence:  그리고 여기 이 문장 보세요:
+- **[03:25]** We are starting to have a serious fine dust issue.  우리는 심각한 미세먼지 문제가 시작되고 있다.
+- **[03:29]** Starting to have is an excellent expression. "Starting to have~"는 굉장히 좋은 표현입니다.
+- **[03:31]** To give a little more detail ... 여러분의 문장을 더 자세히...
+- **[03:33]** and accuracy in your sentences. ...그리고 더 정확하게 만들어 줄거에요.
+- **[03:35]** And it really makes you sound natural. 그리고 원어민 처럼 드릴겁니다.
+- **[03:37]** And if you're able to constantly talk like this, 이렇게 끊임없이 말 할 수 있다면,
+- **[03:40]** Then your English level is definitely more than AL.  여러분의 영어 수준은 당연히 AL 이상일거에요.
+- **[03:43]** So, I'll indicate it here as AL+. 그래서 저는 여기 AL+라고 써놨어요.
+- **[03:45]** Now, notice how this student is  constantly talk about her feelings.  자, 여기 학생이 감정을 어떻게 계속 말하는지 봐보세요.
+- **[03:50]** This is just a disaster. 이건 재앙이에요.
+- **[03:52]** This is just a disaster.  이건 재앙이에요.
+- **[03:54]** Disaster / tragedy / terrible
+- **[03:57]** All very great words to use here.  모두다 사용하기 좋은 단어에요.
+- **[03:59]** And then now she's starting to involve Ava a little bit.  그리고 지금 Ava를 끌어들이고 있어요.
+- **[04:02]** Can you imagine? 상상 할  수 있나요?
+- **[04:03]** How can I live with this much fine dust?  어떻게 이렇게 많은 미세먼지 속에서 살 수 있을까요?
+- **[04:07]** Can you imagine? 상상 할  수 있나요?
+- **[04:08]** A very nice rhetorical question.  정말 좋은 수사적인 질문이에요.
+- **[04:10]** And then now,  그리고,
+- **[04:11]** ...even though she was talking about the news... ...뉴스에 대해 말했지만,
+- **[04:13]** ...She's transitioning that to her experience. 그걸 본인 경험으로 자연스럽게 넘어가고 있어요.
+- **[04:15]** How can I live with this much fine dust?  어떻게 이렇게 많은 미세먼지 속에서 살 수 있을까요?
+- **[04:19]** Now, this sentence is also very IH. 이 문장도 IH 입니다.
+- **[04:21]** And if you wanna make it a little bit better,  더 좋게 말하고 싶다면,
+- **[04:23]** I would say something like this: 이렇게 하면 됩니다:
+- **[04:24]** How am I supposed to live with this much fine dust? 이렇게 많은 미세먼지속에서 어떻게 살아야 하나?
+- **[04:27]** Now, considering this is a comparison question,  이건 "비교 질문"이라는걸  생각해보면,
+- **[04:30]** This student over here does a very beautiful job... 이 학생은 너무 잘하고 있습니다...
+- **[04:33]** ...in giving us a very nice PURE PRESENT MP.  완전한 현재형 요점으로 말하고 있죠.
+- **[04:36]** She's talking about a current weather issue.  이 학생은 현재 날씨 문제에 대해 말하고 있어요.
+- **[04:39]** Specifically about fine dust.  특히 미세먼지.
+- **[04:41]** And because of that,  그리고 이것 때문에,
+- **[04:42]** she explains how she does not like it.  왜 싫어하는지 설명해줘요.
+- **[04:44]** Crystal clear!  깔끔해요!
+- **[04:45]** And now, she's gonna go right to the past:  그리고 이제, 과거로 바로 넘어갑니다:
+- **[04:47]** You know, in the past, I think even... 과거에는...
+- **[04:49]** 3 years ago, it wasn't like that. 3년 전엔, 이정돈 아니었어요.
+- **[04:52]** You know, in the past, I think even... 과거에는...
+- **[04:54]** 3 years ago, it wasn't like that. 3년 전엔, 이정돈 아니었어요.
+- **[04:56]** Automatic contrast here. 자동적으로 대조가 되요.
+- **[04:58]** Very, very good. 
+- **[04:59]** You know, sometimes these comparison questions... 때때로 이런 비교 질문들을...
+- **[05:01]** ...they ask you, ...물어봐요.
+- **[05:02]** "Hey, you know...
+- **[05:02]** ...identify the similarities or the differences." "유사점이나 차이점을 찾으세요."
+- **[05:05]** But you know, you don't need to use those words. 하지만 이런 단어를 사용할 필요는 없어요.
+- **[05:07]** Right?
+- **[05:08]** You don't need to be like, 이럴 필요는 없습니다,
+- **[05:08]** "Ok, the similarities are this."  "네, 유사점이란 이겁니다."
+- **[05:10]** "And the differences are that."  "그리고 차이점은 이겁니다."
+- **[05:12]** That's way too rigid.  완전 뻣뻣해요.
+- **[05:13]** In this case, everything is assumed.  여기에서는, 모든것이 가정되는 거에요.
+- **[05:15]** And even though you don't use those words: 우리는 이런 단어를 쓸 필요는 없어요:
+- **[05:17]** "Similar" or "Different" 
+- **[05:19]** You still naturally show contrast here. 여러분은 자연스럽게 대조를 보여주는 거죠.
+- **[05:22]** Through this strategy.  이 전략으로.
+- **[05:23]** Through this structure. 이 구조로.
+- **[05:24]** Of starting with PURE PRESENT... 완전 현재형으로 시작해서...
+- **[05:26]** ...and now going right to the PAST. ...그리고 바로 과거형으로 마무리한다.
+- **[05:27]** Excellent job. 
+- **[05:28]** Basically, we won't worry about air condition thing.  기본적으로, 우리는 공기상태를 걱정할거에요.
+- **[05:33]** And then she says: 이렇게 말했어요:
+- **[05:34]** Basically, we won't worry about air condition thing. 기본적으로, 우리는 공기상태를 걱정할거에요.
+- **[05:37]** Ok now, here, lots of mistakes. 실수가 많았어요.
+- **[05:39]** Because she's talking about the past,  과거에 대해 말하고 있었기 때문에,
+- **[05:41]** We cannot say, "We won't worry".  "우리는 걱정 할 거에요." 라고 하면 안 돼요.
+- **[05:43]** Here, we have to change it to. 여기, 바꿔야 합니다.
+- **[05:44]** "We didn't have to worry." "우리는 걱정할 필요가 없었어요."
+- **[05:46]** Now, take a look here. 자, 이제 여기를 봐보세요.
+- **[05:47]** Air condition... uh, the condition of the air.  공기상태...
+- **[05:50]** It's kind of confusing . 헷갈려요.
+- **[05:51]** Because it really sounds like... 왜냐면...
+- **[05:52]** she's talking about some sort of air conditioner. 에어컨에 대해 말하는 것 처럼 들려요.
+- **[05:54]** Or simply AC.  간단히 AC.
+- **[05:56]** Personally, I would change this to "air quality".  개인적으로는, "air quality"라고 하는게 좋겠어요.
+- **[05:58]** I recommend something like this:  그래서 이렇게 하는걸 추천 합니다:
+- **[06:00]** We never really had to worry about air quality. 우리는 공기 질에 대해 걱정할 필요가 없었어요.
+- **[06:02]** Very AL.
+- **[06:04]** And, of course, if you want to improve your language a little more, 그리고 물론, 더 향상된 걸 원하신 다면
+- **[06:06]** Don't just stop there, but try to go a bit further. 거기서 멈추지 말고, 더 발전시켜 주세요.
+- **[06:10]** To further confirm what you are saying. 여러분이 말한것을 확실하게 해주세요.
+- **[06:11]** We went outside pretty much worry-free.  우리는 걱정없이 밖에 나갔어요.
+- **[06:14]** I'm saying exactly what I said,  제가 말한 것을 정확히 말했어요
+- **[06:15]** But with a little more UMPH!
+- **[06:17]** Notice here, I'm using the same word: worry. 저는 같은 단어를 사용했어요: worry.
+- **[06:19]** But I'm using it in a different way. 하지만 다른 방법으로 사용했죠.
+- **[06:21]** It's especially effective if you say it in one sentence. 한 문장에서 말한다면 정말 효과적일 거에요.
+- **[06:24]** And on the next sentence,  그리고 다음 문장에서,
+- **[06:25]** You're able to use the same word in a different way.  같은 단어를 다른 방법으로 사용할 수 있죠.
+- **[06:28]** That kind of style is a 100% AL+.  이 스타일이 바로 AL+ 입니다.
+- **[06:31]** And now, the student goes on.  그리고 이 학생은 계속 말합니다.
+- **[06:33]** And we were able to do anything outside.  그리고 우리는 밖에서 어떤것도 할 수있었어요.
+- **[06:36]** And we were able to do anything outside.  그리고 우리는 밖에서 어떤것도 할 수 있었어요.
+- **[06:39]** I know what she's trying to say.  이 학생이 무슨말을 하려는지는 알겠어요.
+- **[06:41]** But in my honest opinion, it's not clear enough here. 하지만 충분히 명확하지 않아요.
+- **[06:44]** I would say this is about IM2. IM2 입니다.
+- **[06:45]** So let's try something like this.  그래서 이렇게 한번 해봅시다.
+- **[06:47]** And we were able to freely go outside  그리고 우리는 밖으로 자유롭게 나갈수 있었어요.
+- **[06:49]** without having to wear a mask. 마스크 없이.
+- **[06:52]** Here, I'm still talking about fine dust. 여기서, 전 미세먼지에 대해 아직 이야기 하고 있어요.
+- **[06:54]** But in a different way.  하지만 다른 방법으로요.
+- **[06:55]** By mentioning mask, 마스크를 언급하면서,
+- **[06:56]** I'm still making my message very clear. 메세지를 명확하게 하고 있어요.
+- **[06:58]** By talking about the same thing.  같은것에 대해 이야기 하고 있죠.
+- **[07:00]** And yet, in a very skillful way.  하지만, 기술적인 방법으로.
+- **[07:02]** But over here, the one thing that this student is missing... 하지만 여기서, 이 학생이 한 가지 놓친건...
+- **[07:05]** is emphasizing her FEELING.  ...감정이에요.
+- **[07:07]** Ok, so she's mentioning all these things.  이 학생은 모든 것에 대해 말했어요.
+- **[07:09]** And how does she feel about it? 그리고 어떻게 느꼈나요?
+- **[07:11]** So, I would add something like,  그래서 첨가하면 이렇게 됩니다,
+- **[07:12]** "Oh, and this was just amazing."  "오, 그리고 완전 놀라웠어요."
+- **[07:14]** Something like that. 
+- **[07:15]** Now, she goes right to the present.  이제, 이 학생은 현재로 넘어가고 있어요.
+- **[07:17]** But these days, basically, we can't do anything outside. 하지만 요즘엔, 우린 밖에서 아무것도 할 수 없어요.
+- **[07:21]** But these days, basically, we can't do anything outside. 하지만 요즘엔, 우린 밖에서 아무것도 할 수 없어요.
+- **[07:24]** Again, here, a little more detail is necessary.  다시, 여기는, 좀더 디테일한게 필요해요.
+- **[07:27]** So, something like this: 이렇게요:
+- **[07:28]** "... without having to worry about fine dust."  "...미세먼지 걱정없이."
+- **[07:31]** We just, you know, if you just stand outside... 우리가 밖에 서있는 다면...
+- **[07:35]** ...for only a few minutes... ...몇 분만...
+- **[07:36]** ...you can feel all the dust in your mouth. ...입에서 먼지를 느낄수 있어요. 
+- **[07:39]** "We just"... and then she realizes... "We just"... 그리고 깨달아요...
+- **[07:41]** OMG, she needs to restart and try again. 그리고 다시 시작해야하죠.
+- **[07:43]** So what did she do? 그래서 어떻게 했나요?
+- **[07:44]** She uses a filler here: YOU KNOW... 필러를 사용했습니다: YOU KNOW...
+- **[07:46]**  And then tries again.  그리고 다시 말해요.
+- **[07:48]** Very clear. 너무 깔끔해요.
+- **[07:49]** If you must self-correct yourself, this is the way to do it. 만약 틀리면, 이렇게 하시면 됩니다.
+- **[07:52]** And so, now, she tries again:  그래서, 이 학생은 다시 합니다:
+- **[07:54]** "If you just stand outside for only a few minutes..." "몇 분만 밖에 서있으면..."
+- **[07:57]** And I love this word "only" here btw  그리고 "only" 이 단어
+- **[07:59]** Because it adds a very subtle detail to your sentence. 이 단어를 넣어서 문장이 더 미묘하게 디데일 해졌어요.
+- **[08:02]** And she ends it by saying:  그리고 이렇게 끝내요:
+- **[08:03]** "You can feel all the dust in your mouth."  "입에서 먼지를 느낄수 있어요."
+- **[08:06]** I don't know about the mouth... 입... 잘 모르겠어요...
+- **[08:08]** Maybe more, your lungs, right? 아마 폐가 더 맞을거 같아요.
+- **[08:10]** So you can say something like, 이렇게 말할수 있어요:
+- **[08:11]** "You can sort of feel the dust  accumulating in your lungs."  "폐에 먼지가 쌓이는걸 느낄수 있어요."
+- **[08:14]** But now, look at what the student does here.  하지만, 이 학생이 한 걸 보세요.
+- **[08:16]** This is just awful.  완전 끔찍해요.
+- **[08:18]** This is just awful. 완전 끔찍해요.
+- **[08:20]** Yes! She's keeping it feeling-focused here! 드디어! 감정에 집중을 하고 있네요!
+- **[08:22]** And a great word, btw: AWFUL.  그리고 여기 중요한 단어: AWFUL.
+- **[08:24]** And she doesn't only say the word "awful". 그냥 "awful"만 말하지 않았어요.
+- **[08:26]** She says, "Just awful". "Just awful." 이렇게 말했죠.
+- **[08:28]** I always tell you guys... 제가 항상 말하죠...
+- **[08:29]** This word "just" is a very AL word. 이 단어 "just" AL  단어에요.
+- **[08:31]** And then her conclusion: 그리고 결론을 내요:
+- **[08:32]** "And, I don't know if this will be better or not..." "이게 더 좋아질지 아닐지 모르겠어요..."
+- **[08:36]** "But hopefully this will be handled very soon."  "하지만 바라건데 곧  잘 처리되길 바라요."
+- **[08:41]** "And, I don't know if this will be better or not..." "이게 더 좋아질지 아닐지 모르겠어요..."
+- **[08:44]** "But hopefully this will be handled very soon."  "하지만 바라건데 곧  잘 처리되길 바라요."
+- **[08:46]** Ok so: "I don't know if this will get better or not."  "이게 더 좋아질지 아닐지 모르겠어요..."
+- **[08:49]** And also the word usage here: HANDLED. 이 단어를 썼는데요: HANDLED.
+- **[08:51]** Hmm, maybe "resolve" could be better. "resolve"라고 하는게 더 나을거 같아요.
+- **[08:53]** But you know, this kind of conclusion... 하지만, 이런 결론은...
+- **[08:54]** Is a very general way of concluding things. 너무 일반적인 결론방법이에요.
+- **[08:57]** And, you know, it's not bad.  나쁜건 아니에요.
+- **[08:59]** But if you want to be a little more unique... 하지만 좀 더 독특하고...
+- **[09:00]** And really boost your chances of  getting the highest mark possible... 더 높은 점수를 받을 기회를 올리고 싶다면...
+- **[09:04]** Then try to add a little bit of humor if you can.  할수만 있다면 약간 유머를 추가해 보세요.
+- **[09:07]** Take a look at this kind of concept.  이 컨셉을 보세요.
+- **[09:09]** "And you know what?"
+- **[09:09]** "I'm really just getting sick and tired  of wearing masks all the time." "항상 마스크 쓰는거 질렸어."
+- **[09:14]** "If this keeps up, I'm gonna be forced  to move out of this country." "이게 지속된다면, 나 이 나라를 떠날래."
+- **[09:17]** If you could make the OPIc grader laugh... 여러분이 채점자를 웃긴다면...
+- **[09:19]** Or even smile... 웃음짓게만 해도...
+- **[09:20]** I guarantee you will smile as well... 여러분도 똑같이 웃을 수있을 거에요...
+- **[09:23]** When you get your OPIc grade!  여러분이 오픽 점수를 받을 때!

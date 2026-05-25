@@ -1,0 +1,355 @@
+# Throw away your script for AL! English/Korean subs included!
+
+- **Video URL:** https://www.youtube.com/watch?v=jaeSCfIBIdU
+
+## Closed Captions Transcript
+
+- **[00:00]** you know what a boom Happy New Year
+- **[00:04]** everybody
+- **[00:05]** you know 2019 is the year of the pig
+- **[00:08]** which symbolizes fortune and riches so
+- **[00:11]** may all of us work hard and prosper in
+- **[00:14]** this new year and for many of us Koreans
+- **[00:17]** would be humbled cylinder huniepop
+- **[00:19]** meanders turkey Oh bigger had in hand
+- **[00:22]** Sanders had their 100 jumps under hot
+- **[00:24]** job can you tell me about the last time
+- **[00:27]** you had some free time when was it what
+- **[00:30]** did you do did you spend the time with
+- **[00:31]** someone
+- **[00:33]** okay I went to Swiss with my C's - for
+- **[00:38]** about a few months ago and it was
+- **[00:43]** freaking awesome because I got to go
+- **[00:46]** skydiving and talking about it makes me
+- **[00:51]** wanna cuddle my sister and go there
+- **[00:54]** again anyway we stayed here just for a
+- **[00:58]** few days
+- **[00:59]** and I didn't have that much time to
+- **[01:03]** travel so I had no choice but to choose
+- **[01:06]** only one activity and if only I had more
+- **[01:11]** time anyway I decided to go skydiving as
+- **[01:16]** my main activity and really do not I
+- **[01:21]** didn't feel nervous at all
+- **[01:24]** before I went skydiving but when I was a
+- **[01:29]** bad job I was like oh oh my gosh oh my
+- **[01:34]** gosh I can do this I tense and then for
+- **[01:42]** a few seconds and then when I woke up
+- **[01:44]** and I was it it was the feeling the most
+- **[01:49]** thrilling thing that I ever experienced
+- **[01:52]** and next thing you know I was on the
+- **[01:57]** ground and you know what Oh
+- **[02:01]** after Jacek test
+- **[02:04]** I shouldn't call her my my sister round
+- **[02:07]** for round two
+- **[02:09]** okay so the first half of her answer is
+- **[02:11]** actually quite good her message is very
+- **[02:13]** clear because her main point is super
+- **[02:16]** good she talks about skydiving and
+- **[02:18]** anything she says now makes that
+- **[02:20]** skydiving point bigger and bigger now
+- **[02:23]** the problem I had was with the second
+- **[02:25]** half of her answer you can see that she
+- **[02:27]** was actually focusing on trying to fix
+- **[02:29]** her grammar instead of making her
+- **[02:31]** message clear and this is the problem
+- **[02:34]** with many OPIC students torture Hannegan
+- **[02:36]** organic Jima can they object like an
+- **[02:38]** audio recording and game or synth or not
+- **[02:41]** Samira you hit her - no sir
+- **[02:42]** our children under 13 to care tonight
+- **[02:44]** now cannot watch your sister cocoon
+- **[02:45]** Tommy you're ejected it altogether
+- **[02:46]** Hanukkah
+- **[02:47]** hmm I didn't get watching okay maybe
+- **[02:50]** that wasn't the best example but never
+- **[02:52]** forget this when you are answering an
+- **[02:54]** open question you have one main goal
+- **[02:57]** Kumu choking one bill cockatoo Deborah
+- **[02:59]** Hannah get a namida but instead your
+- **[03:01]** goal is to make your message very easy
+- **[03:04]** to understand if you keep trying to fix
+- **[03:07]** your grammatical mistakes your message
+- **[03:09]** will deteriorate please do not do this
+- **[03:12]** okay I went to squeeze with my c2 for
+- **[03:18]** about a few months ago and it was
+- **[03:23]** freaking awesome because I got to go
+- **[03:26]** skydiving
+- **[03:26]** um okay she takes a moment here and then
+- **[03:30]** she continues on I like that this is a
+- **[03:32]** very good technique and then she says I
+- **[03:34]** went to Swiss Rachel meant to say I went
+- **[03:37]** to Switzerland the country itself if you
+- **[03:39]** say Swiss you're talking about things
+- **[03:42]** from Switzerland so for example swiss
+- **[03:45]** chocolates with people Swiss cheese
+- **[03:47]** Swiss Army knives whatever
+- **[03:50]** anyway she continues on I went to Swiss
+- **[03:52]** with my sister for and then she pauses
+- **[03:55]** because she's thinking about her grammar
+- **[03:57]** here but the problem is she really wants
+- **[03:59]** to say a few months ago so she realizes
+- **[04:02]** she made a mistake you cannot say for
+- **[04:03]** and then a few months ago for about a
+- **[04:06]** few months ago that's a little bit weird
+- **[04:08]** so she tries to correct herself about a
+- **[04:11]** few months ago the problem is for and
+- **[04:13]** about you know this a little bit
+- **[04:15]** confusing but she didn't try to
+- **[04:18]** correcting herself instead she moved on
+- **[04:20]** which is very good Yohe so Tashi her
+- **[04:23]** laminin for her men saw condemned a
+- **[04:25]** villain in detail later than also I went
+- **[04:27]** to Swiss with my sister for you know I
+- **[04:30]** went there about a few months ago you do
+- **[04:32]** shirahama choke em tall masazuka clear
+- **[04:35]** Hamidah anyway this is what she was
+- **[04:36]** trying to say I went to Switzerland with
+- **[04:38]** my sister about a few months ago now
+- **[04:41]** over here many students make a mistake
+- **[04:43]** because they don't show how they felt
+- **[04:45]** about it they just stop right here and
+- **[04:47]** they continue on with their answer could
+- **[04:49]** that who did new main point have they
+- **[04:50]** ought to get Hannah GI Joe as soon as
+- **[04:52]** she stayed two points explain how you
+- **[04:54]** felt about it so in this case how they
+- **[04:56]** Rachel feel she says and it was freaking
+- **[04:59]** awesome because I got to go skydiving
+- **[05:02]** she mentions how she feels
+- **[05:04]** ought to get the kiss Amica freaking
+- **[05:05]** awesome yogi freaking gonna jump
+- **[05:08]** slanging me that sore Chicka Chicka I'm
+- **[05:10]** too money sicker than you
+- **[05:11]** if this kind of slang is comfortable for
+- **[05:13]** you to use go ahead and try it
+- **[05:15]** can they come join you this on my
+- **[05:16]** birthday we're cooking dinner I'm gonna
+- **[05:18]** guess her mother had to me that yogi not
+- **[05:20]** because I got to go skydiving this main
+- **[05:23]** point has everything cricket pitch and
+- **[05:26]** checkered OPIC greater awesome young I
+- **[05:28]** know exactly what she's gonna talk about
+- **[05:30]** she's gonna be talking about her trip
+- **[05:31]** over at Switzerland and it was a very
+- **[05:33]** memorable awesome trip because she got
+- **[05:36]** to go skydiving the message here is
+- **[05:38]** super clear now ih students tend to
+- **[05:41]** focus on themselves you know I went to
+- **[05:44]** Switzerland I did this I did that which
+- **[05:46]** is very good or al you want another
+- **[05:49]** level of complexity in this case
+- **[05:51]** Rachel's talking about not just her
+- **[05:53]** going to Switzerland's but she adds
+- **[05:55]** another person into her story she says
+- **[05:57]** she went to Switzerland with her sister
+- **[06:00]** Karen said I'm tricky against you loose
+- **[06:02]** some young could t that be horse Shinto
+- **[06:04]** koga nogi so can they teach out of one
+- **[06:06]** jacket am gonna meet him at a meter I
+- **[06:08]** went to Switzerland
+- **[06:09]** alone about a few months ago you know I
+- **[06:11]** really wanted to bring my sister but
+- **[06:13]** unfortunately she couldn't make it
+- **[06:15]** anyway la blah blah for al always tried
+- **[06:18]** to add another person or group of people
+- **[06:20]** other than yourself
+- **[06:22]** that'll make the quality of your answers
+- **[06:24]** much higher and
+- **[06:26]** talking about it makes me wanna cuddle
+- **[06:29]** my sister and go there okay now look at
+- **[06:34]** this part over here woke up Chucky dog
+- **[06:36]**  man
+- **[06:37]** he expression your child's love game
+- **[06:38]** okay your mother Chanukah no more
+- **[06:40]** natural quality - um Joel lavas meter in
+- **[06:43]** the Yoruba yogi so just another noble
+- **[06:45]** sale and just talking about it makes me
+- **[06:48]** wanna go there again
+- **[06:49]** can they rachel urato me today so you
+- **[06:52]** against any gun each sentence at all -
+- **[06:54]** yeah there's a pack you'll nail makes me
+- **[06:55]** wanna call up my sister and go there
+- **[06:58]** again
+- **[06:59]** come singing history me against any gun
+- **[07:01]** charger like a moon junkie butch watch
+- **[07:03]** us meet her anyway we stayed here just
+- **[07:06]** for a few days and I didn't have that
+- **[07:09]** much time to travel so I had no choice
+- **[07:13]** but to choose a new one activity and if
+- **[07:18]** only I had more time anyway we stayed
+- **[07:22]** there just for a few days the UH here is
+- **[07:25]** actually very important but notice how
+- **[07:26]** she used the word just here very very
+- **[07:28]** good her sentence is more specific and
+- **[07:30]** detailed this way
+- **[07:32]** Canaan Jay main point in the sky diving
+- **[07:34]** in again caliente skydiving jogger
+- **[07:36]** cogwheel Sameera yoga Talmud Jung a
+- **[07:38]** permanent and I didn't have that much
+- **[07:39]** time to travel scanty money off so -
+- **[07:42]** Yogi's in cheek has a focus Hammond
+- **[07:44]** skydiving children can go Joe so I had
+- **[07:47]** no choice but to choose only one
+- **[07:49]** activity main pointing a normal clear a
+- **[07:52]** category one activity come on ginger I
+- **[07:54]** see John skydiving and if only I had
+- **[07:57]** more time Chinese a yogi television if
+- **[08:00]** if further assert their mother creative
+- **[08:02]** dear Tsubaki observe sconnie John tall
+- **[08:04]** assassin young it really adds a higher
+- **[08:07]** level of complexity into your answers it
+- **[08:09]** makes it way more sophisticated and yet
+- **[08:12]** simple at the same time if you really
+- **[08:14]** want the AL mark really practice using
+- **[08:17]** the word if in this case she used if
+- **[08:19]** only I had more free time the words if
+- **[08:21]** only is also a very great expression for
+- **[08:24]** you to practice in using anyway I
+- **[08:26]** decided go skydiving
+- **[08:29]** as my main activity and believe it or
+- **[08:32]** not I didn't feel nervous at all before
+- **[08:37]** I went skydiving but when I was a budget
+- **[08:43]** job I was like oh my gosh oh my gosh I
+- **[08:47]** can do this I can't anyway I decided to
+- **[08:51]** go skydiving as my main activity now she
+- **[08:54]** gets into the meat of her answer
+- **[08:56]** skydiving but notice it took her a bit
+- **[08:59]** of time to finally get there but not in
+- **[09:01]** an awkward way it was actually quite
+- **[09:02]** natural and she's only talking about one
+- **[09:05]** thing
+- **[09:06]** skydiving I don't think it ought to get
+- **[09:07]** mika skydiving it is so yeah it has to
+- **[09:10]** do economic capture get to do day so the
+- **[09:12]** matter how cool Konami books her under
+- **[09:14]** there's no matter how cool and then they
+- **[09:15]** continue on by talking about the land in
+- **[09:17]** the mountains and the skyscrapers and
+- **[09:19]** the clouds and whatever here bananas
+- **[09:21]** occupy maracuja Puna kakou focus ketchup
+- **[09:24]** shaggy saudi-american a Rachel on a
+- **[09:26]** Hongwanji a case of murder Susan Egan
+- **[09:28]** who scared the air Potter Tsubaki
+- **[09:30]** I'm not scared Amita could we go talk
+- **[09:32]** hello yogi pomian
+- **[09:33]** Rachel does a really excellent job in
+- **[09:36]** expressing how she felt instead of just
+- **[09:38]** talking about what she did my under
+- **[09:41]** Huck's England they got Mohini as her
+- **[09:43]** meager google her head Seneca they
+- **[09:44]** got together
+- **[09:46]** mine is harmony another degree when you
+- **[09:47]** are learning a new language being able
+- **[09:50]** to elaborate on your feelings is the
+- **[09:53]** best way to increase your language
+- **[09:55]** speaking ability it's a very personal
+- **[09:57]** way to communicate and also it is a lot
+- **[10:00]** easier to understand now let's take a
+- **[10:02]** look at this next part and believe it or
+- **[10:04]** not a very excellent expression to use
+- **[10:07]** especially when something is out of the
+- **[10:09]** ordinary and believe it or not I didn't
+- **[10:11]** feel nervous at all before I went
+- **[10:14]** skydiving Hanuman came though nervous an
+- **[10:17]** attack at all no manometer Smita in the
+- **[10:19]** Manny Hangul 17 at or Haggadah near or
+- **[10:21]** the Anita all emitter at all I didn't
+- **[10:24]** feel nervous at all but when I was about
+- **[10:26]** to jump even continent deteriorated in
+- **[10:29]** watch her on a good job Hannah soon
+- **[10:31]** Ghana to jump Jonny no one over to
+- **[10:34]** Smee that doggy in Jake rotation or such
+- **[10:35]** oh I was like
+- **[10:37]** my gosh oh my gosh I can't do this I
+- **[10:40]** can't we should know by now that when
+- **[10:42]** you're answering a past experience
+- **[10:44]** question if you add a direct quotation
+- **[10:47]** it really makes your answer dynamic and
+- **[10:49]** at the same time shows your grammar
+- **[10:51]** skill you are using past tense and then
+- **[10:54]** when you're adding a direct quotation
+- **[10:56]** you're using present tense but without
+- **[10:58]** making a mistake never forget the power
+- **[11:01]** of direct quotations for a few seconds
+- **[11:08]** and then when I woke up and I was if it
+- **[11:13]** was the feeling thing a most thrilling
+- **[11:15]** thing that I ever experienced and then I
+- **[11:20]** think I passed out this is another very
+- **[11:22]** great detail because as she was falling
+- **[11:25]** she expresses that just for a few
+- **[11:27]** seconds cap chuck-e-cheese other head
+- **[11:28]** dunk and a yogi town Goodwin n this was
+- **[11:30]** probably the worst part of her answer
+- **[11:32]** because she tries to self-correct
+- **[11:34]** herself way too many times in her mind
+- **[11:37]** she's trying to do a better job and
+- **[11:39]** tries to make the message clearer but we
+- **[11:42]** asked the listeners we are actually
+- **[11:44]** getting way more confused because with
+- **[11:46]** all the self-correcting the message
+- **[11:48]** becomes a little bit weaker broken
+- **[11:50]** unclear so in this case if you make a
+- **[11:53]** mistake just use a filler and continue
+- **[11:55]** on and make sure that the message is not
+- **[11:57]** broken okay so something like this and
+- **[12:00]** then when I woke up and I was okay yoga
+- **[12:02]** tell yourself okay so Jeff Euler's high
+- **[12:04]** Lamas are okay you know when I woke up I
+- **[12:07]** lost all my fear and I thought it was
+- **[12:10]** the most thrilling thing that I've ever
+- **[12:13]** experienced and then next thing you know
+- **[12:16]** I was underground no you know what Oh
+- **[12:21]** after disick test I think I shouldn't
+- **[12:25]** call them up my sister round for long -
+- **[12:29]** and the next thing you know I was on the
+- **[12:31]** ground this is a very awesome idiom to
+- **[12:34]** use but I would definitely use the word
+- **[12:36]** thought just to make it a little bit
+- **[12:37]** more accurate the next thing you know I
+- **[12:39]** was on the ground up Chuckie you could
+- **[12:42]** hit that excellent excellent expression
+- **[12:44]** and um you know what yogini NJ Rachel
+- **[12:46]** Carson Carson Alex
+- **[12:47]** kanabi yogi Tom Boonen they get wrong
+- **[12:50]** idea Amita but again she was a little
+- **[12:52]** too focused on using perfect grammar and
+- **[12:55]** because of that the message became a
+- **[12:58]** little bit weaker now this is what she
+- **[12:59]** was trying to say Oh
+- **[13:01]** after this test I think I should call it
+- **[13:03]** my sister for round two this is no doubt
+- **[13:06]** an amazing conclusion but because Rachel
+- **[13:08]** had a little bit of a slip-up she
+- **[13:10]** focused too much on self correction
+- **[13:12]** again use a filler and continue on Oh
+- **[13:15]** after this test I think I should call up
+- **[13:18]** my my my sister okay I should call up my
+- **[13:21]** sister and you know go for round two
+- **[13:23]** Karrueche guru hominin her message she
+- **[13:25]** got Peggy ship catalyst ooh is Samira
+- **[13:27]** this is okay no Jan is a in charge of
+- **[13:31]** Kundalini boo Yong hundred her only
+- **[13:33]** daughter girl hip again a few months ago
+- **[13:52]** and it was freaking awesome because well
+- **[13:56]** you know I got to go skydiving and just
+- **[14:00]** talking about it makes me want to call
+- **[14:02]** up my sister and go there again okay
+- **[14:06]** anyway we stayed there just for a few
+- **[14:08]** days and I didn't have that much time to
+- **[14:12]** travel and so I had no choice but to
+- **[14:15]** choose only one activity oh if only I
+- **[14:19]** had more time anyway I decided to go
+- **[14:22]** skydiving as my main activity and
+- **[14:25]** believe it or not I didn't feel nervous
+- **[14:29]** at all before I went skydiving but um
+- **[14:32]** when I was just about to jump I was like
+- **[14:35]** oh my gosh I can't do this I can't and
+- **[14:40]** then I think I passed out of for a few
+- **[14:44]** seconds but then when I woke up I lost
+- **[14:48]** all my fear and I thought it was the
+- **[14:51]** most thrilling thing that I've ever
+- **[14:53]** experienced and the next thing you know
+- **[14:57]** I was on the ground
+- **[14:58]** and you know what after this test I
+- **[15:02]** think I should definitely call it my
+- **[15:04]** sister for round two

@@ -1,0 +1,173 @@
+# 오픽/영어 실력 향상을 쉽게! 문법 꿀팁 | 오픽 외국인편 004
+
+- **Video URL:** https://www.youtube.com/watch?v=-LfnRsy3V70
+
+## Closed Captions Transcript
+
+- **[00:00]** First of all, thank you so much for doing this!
+- **[00:01]** My pleasure. Alright, awesome.
+- **[00:25]** Thank you so much for doing this.
+- **[00:27]** My pleasure.
+- **[00:31]** "It's" my pleasure.
+- **[00:33]** Grammatically, that is very correct.
+- **[00:36]** Conversation
+- **[00:41]** Gatherings have changed over the years. How were they in the past and how are they now? What are the differences and the similarities?
+- **[00:50]** Ah, alright.
+- **[00:52]** I got this one.
+- **[00:54]** This is an easy one.  I thought you were going to ask me a difficult one. Alright.
+- **[01:17]** Intonation
+- **[01:19]** Is maybe not so good.
+- **[01:20]** A lot of students will answer something but sound very robotic.
+- **[01:24]** We are not robots. We are humans.
+- **[01:26]** And so we need to have musical notes in our answer.
+- **[01:29]** And so how do you do that? I want you to smile as you are answering.
+- **[01:34]** Smile from ear to ear! And then your answers will be that much better.
+- **[01:37]** But let's continue to listen and see how we can get that AL.
+- **[01:41]** Well, I think... first let me start with the similarities. Um, I think...
+- **[01:52]** Well... Well, you know...
+- **[01:55]** When it comes to
+- **[01:57]** Oh by the way,  "when it comes to"...
+- **[02:00]** When it comes to music... When it comes to food...
+- **[02:09]** Oh, I love music. And when it comes to the sound...
+- **[02:15]** I absolutely love food and when it comes to 뎅장찌개...
+- **[02:20]** Your chance of getting AL is that much higher.
+- **[02:23]** Anyway, to get AL,  you have to first start answering questions in a very natural way.
+- **[02:28]** And in different ways too.
+- **[02:30]** We have 15 questions in the OPIC test.
+- **[02:33]** And you don't want to start every single question with
+- **[02:36]** "Well" or "you know"
+- **[02:37]** Those kinds of things.
+- **[02:38]** You got to change it up a little bit.
+- **[02:40]** You have to first practice changing up your answers right in the beginning.
+- **[02:44]** For instance, this person over here starts like this:
+- **[02:47]** Well, I THINK... first let me start with the similarities. I THINK...
+- **[02:51]** So natural.
+- **[02:53]** So this is good strategy to start right in the beginning  letting the (OPIC) marker know  exactly what you're going to do.
+- **[02:59]** 1. Well, I think... 2. I'm going to start talking about this first. 3. And then I'll tell you what I'm going to talk about next.
+- **[03:05]** But in a very smooth way.
+- **[03:07]** Some students...  they try to organize the question in a very rigid...  뻣뻣한 way.
+- **[03:12]** Like for example: Oh I have many things to say. First... blah, blah, blah.  Second... blah, blah, blah. Third...
+- **[03:18]** Those kinds of things.
+- **[03:19]** You don't want to do that for the OPIC test.
+- **[03:21]** Remember, you are trying to show the OPIC grader that... Hey, I don't have a script,  and I'm just answering this right on the spot.
+- **[03:28]** So when you're trying to answer big questions...
+- **[03:30]** Especially the questions that involve past and present,   you should do something like this.
+- **[03:36]** 1. Well, I think... 2. blah, blah, blah 3. I think...
+- **[03:39]** Something like that. So, for example:
+- **[03:40]** Let's say there's a question about homes and how they're so different in the past and now... You can say something like:
+- **[03:46]** 1. Well, I think... 2. homes have changed quite a bit especially with their technology. 3. You know, I think...
+- **[03:53]** And something like that.
+- **[03:54]** So --> 1. Well, I think... 2. Your MAIN POINT.  3. and then "I THINK" again!
+- **[03:58]** And then you continue your answer.
+- **[03:59]** Overall, we gather and  we have gatherings  out of necessity.
+- **[04:08]** But for students I just still recommend using "overall" in the conclusion.
+- **[04:13]** It's not that easy to use overall in the beginning.
+- **[04:16]** But what I loved about this answer is that he gave his main point right in the beginning here. He says:
+- **[04:22]** 1. We GATHER 2. and we have GATHERINGS 3. out of necessity.
+- **[04:26]** Now personally, I would put that even right in the beginning of your answer.
+- **[04:30]** That is much, much better for OPIC.
+- **[04:33]** Instead of putting it later on.
+- **[04:35]** As soon as you hear the question, I want you to answer the "main point" RIGHT AWAY.
+- **[04:40]** And then... You know, you can think about it. Or you can give some introduction or whatever.
+- **[04:44]** But put the main point right in the beginning so that the OPIC marker will know exactly what you're talking about.
+- **[04:50]** This person, he goes:
+- **[04:52]** Well, I think... let me start with the similarities... And then he goes to the main point.
+- **[04:56]** But I want you to put the main point in the beginning.
+- **[04:59]** Well, I think... people gather and have gatherings out of necessity. I think... ok, let me start with the similarities. In the past...
+- **[05:11]** Ok, something like that. If you do that, you put the main point in the beginning - much, much better.
+- **[05:15]** Now, this person over here does something amazing.
+- **[05:22]** People gather out of necessity.
+- **[05:26]** Gather 하고 또 gathering 을...
+- **[05:30]** People gather and have gatherings...
+- **[05:33]** That is the AL method.
+- **[05:34]** Let me give you some more examples.
+- **[05:35]** Let's say comparing coffee shops from the past to the present
+- **[05:39]** I think people 1. "went to" 2. and "have gone to" coffee shops in the past...
+- **[05:42]** Just like that.
+- **[05:43]** I think people  "went to" and "have gone to" coffee shops...
+- **[05:48]** Making it a little bit longer.
+- **[05:49]** Instead of simply saying: I think people went to coffee shops.
+- **[05:52]** That is the AL method.
+- **[05:53]** Ok, let me give you another example. Let's talk about fashion.
+- **[05:59]** Safe colors.
+- **[06:04]** Like something bright. Bright green or something like that.
+- **[06:09]** Black, white, navy blue, gray...
+- **[06:18]** In Korea, I think many people you know like to 1. "wear" 2. and are "wearing" safe colors because they don't want to attract  too much attention.
+- **[06:27]** People like to  "wear" and are "wearing"
+- **[06:42]** I think people "wear" and are "wearing"~
+- **[06:46]** The differences are that, however, in the past...
+- **[06:54]** In the past
+- **[06:54]** We gathered out of a physical necessity.
+- **[06:58]** We gathered to survive uh to work together so that  we can increase the number of years that we would live.
+- **[07:04]** So that we can increase the amount of food that we have.
+- **[07:07]** And overall live better lives.
+- **[07:10]** And I think over time that evolved to be more spiritual.
+- **[07:13]** Or we gathered to be more connected.
+- **[07:17]** Things like that. Um...
+- **[07:19]** Now, you have to realize this person's answer was actually very, very amazing.
+- **[07:23]** He went very deep.  Almost philosophical.
+- **[07:26]** And I don't expect the AL students trying to answer in this kind of way.
+- **[07:32]** But I do want to focus on something here.
+- **[07:34]** When he's talking about the past, he's only talking about the past.
+- **[07:38]** A lot of students when they're trying to make a comparison... you know, the similarities and the differences...
+- **[07:43]** They usually talk about the past  and then the present and then the past and then the present...
+- **[07:47]** You know, they're bouncing back and forth.
+- **[07:49]** Wasting a lot of time.
+- **[07:51]** It is actually very confusing
+- **[07:53]** But this person over here just talks about the past  and that's it.
+- **[07:57]** Very nice; very simple; easy to follow. And that's what I want you to do.
+- **[08:00]** Now in the middle of this part, he says the expression: "over time".
+- **[08:05]** Before he talks about the present,  he talks about the past, and then he talks about as time went on, and then he goes right to the present.
+- **[08:13]** 1. In the past 2. over time 3. and then "present"
+- **[08:16]** Very, very good structure.
+- **[08:17]** Even today uh when we think about gatherings, we gather in kind of a digital space. In kind of a digital space.
+- **[08:25]** And even that is ultimately because  we have this need to in some way connect to something bigger than ourselves.
+- **[08:32]** Even if it's just as simple as a discussion.
+- **[08:35]** And uh overall I think that's why
+- **[08:38]** Ok, I want to focus on the beginning part and the end part of this segment.
+- **[08:42]** He starts off the present part of his answer by saying: "even today".
+- **[08:47]** Now, the key part of this expression is the word "even".
+- **[08:51]** What he's trying to do here is that word... the... "even" is connecting the past and the present.
+- **[08:56]** He's saying that even now there's a lot of similar things.
+- **[08:59]** Very, very good.
+- **[09:00]** Later on he uses another small word  that boosts fluency.
+- **[09:04]** He says:
+- **[09:05]** When we gather we have gatherings in "kind of" a digital space.
+- **[09:09]** I'm going to repeat that one more time.
+- **[09:11]** When we gather we have gatherings in kind of a digital space.
+- **[09:14]** Now, what part of that answer is AL? Let me how you.
+- **[09:18]** We gather and have gatherings in  KIND OF a digital space.
+- **[09:23]** "Kind of".  It shows a lot of accuracy.
+- **[09:26]** Let me give you another simple typical example in normal conversation.
+- **[09:35]** I have a cold.
+- **[09:40]** I think I have a cold.
+- **[09:45]** I think I "kind of" have a "bit of" a cold.
+- **[09:49]** Kind of / a bit of
+- **[09:51]** If you use those small words, your sentences will become so much more descriptive, so much more accurate, and way more fluent.
+- **[10:05]** And uh overall I think that's why...
+- **[10:08]** Again, the structure is amazing.
+- **[10:10]** He talks only about the past and then he talks only about the present and then he tells us:  Ok, now I'm going to conclude this whole thing by saying the word "overall".
+- **[10:18]** But of course he's a foreigner and he uses a lot of fillers. Which is good. And uh... overall, I think this is why...
+- **[10:26]** Very great expression.
+- **[10:31]** The small words. "And uh I think" overall...
+- **[10:35]** Remember, it's all about the fillers and the small words.
+- **[10:39]** Gatherings... no matter what time period you live in... in some way, they'll always have some way  to be important.
+- **[10:46]** Boom! Thank you so much for that. Excellent answer!
+- **[10:53]** Gatherings no matter what time period in some way will always be important.
+- **[11:01]** No matter what.
+- **[11:07]** He's talking about gatherings... no matter what, no matter the situation, no matter the time,  it will always be important.
+- **[11:17]** If I were to give you another example... let's say talking about coffee shops...
+- **[11:21]** No matter what, coffee shops will always be popular in Korea.
+- **[11:25]** Let's say hotels:
+- **[11:26]** No matter what, hotels will always get more and more expensive because that is what business is.
+- **[11:34]** Now, the second part of what I want to talk about is the expression: "in some way".
+- **[11:39]** Again, these are nice small words that you can use to get your AL.
+- **[11:44]** Now, notice the difference here.  This is a standard IH answer:
+- **[11:47]** You know, gatherings will always be important.
+- **[11:50]** Now, this is a standard AL answer:
+- **[11:52]** You know, gatherings in some way  will always be important.
+- **[11:57]** Again, it's those small words that will get you your AL.
+- **[12:00]** And of course some idioms along the way
+- **[12:04]** I always say the more idioms you could use, the higher the quality of your answers will be.
+- **[12:08]** If you liked this kind of content, please, please, PLEASE!
+- **[12:14]** This is OPICNOJAM! BOOM!

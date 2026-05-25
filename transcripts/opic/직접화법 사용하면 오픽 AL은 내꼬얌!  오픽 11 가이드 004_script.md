@@ -1,0 +1,194 @@
+# 직접화법 사용하면 오픽 AL은 내꼬얌! | 오픽 1:1 가이드 004
+
+- **Video URL:** https://www.youtube.com/watch?v=fyrLr4OLlu8
+
+## Closed Captions Transcript
+
+- **[00:00]** no we're young you know boom woman hey
+- **[00:04]** el choclo gotcha
+- **[00:06]** EP do new direct quotations that all
+- **[00:09]** together talk about us we never get
+- **[00:13]** a man up on to the error when I'm gonna
+- **[00:15]** take a boonie emitter air upon the
+- **[00:17]** incentive come to Montana
+- **[00:18]** Sookie resume Erica permanent akivasha
+- **[00:21]** keep Waco cricket amanda gets ham seung
+- **[00:24]** cheon imminent yeah yeah her pademelon
+- **[00:26]** india Taschen opener computer and i
+- **[00:28]** suing them could put on each other clear
+- **[00:30]** go to chair Kuni you wanted blue
+- **[00:32]** putin i oh yeah Julia Oh Pedro to give
+- **[00:34]** us a song oh man IH palace oh no no to
+- **[00:37]** give out herself
+- **[00:38]** oh I ate a song Kenan
+- **[00:42]** hey yeah air pendant you know gotcha get
+- **[00:48]** your candy
+- **[00:49]** you don't get to remote I don't seem to
+- **[00:50]** the permanent yet it risotto wake Sunnah
+- **[00:53]** and so on Conan your mom didn't come
+- **[00:56]** sooner tarpanam she yogiji to ki yong
+- **[00:59]** hwa she lugar coitus Regina come to da
+- **[01:02]** choppah do you know what hey what're
+- **[01:03]** chrome-dome outcomes harmonic same data
+- **[01:05]** on too much on I can they opened a
+- **[01:07]** limiter Ricky will pick al check out
+- **[01:10]** your ticket Jim I'm not on a uh a single
+- **[01:12]** chicken boy on the John Doe your mother
+- **[01:14]** jumped haha - like we are popular take
+- **[01:16]** it with tannin AR hot singer as you can
+- **[01:18]** see from Anderson Oh pick a are you
+- **[01:20]** watching young can your eider brother
+- **[01:21]** swing up on Michael Poggi Marco do you
+- **[01:24]** tell your ma she lucky I admit your
+- **[01:26]** mother see rehearsal ooh hmm
+- **[01:27]** don't worry man is handsome come Buddha
+- **[01:29]** up let me help you with your
+- **[01:30]** natural English so that you could attain
+- **[01:33]** your Al mark naturally let's begin in
+- **[01:36]** OPIC there are three main combo sets
+- **[01:38]** that's a total of nine questions
+- **[01:41]** Cuomo searching in a gadget when you get
+- **[01:43]** good no description past experience
+- **[01:45]** habit and comparison yogi when choking
+- **[01:48]** the twin salmon swimming leader optic is
+- **[01:50]** higher Hammond saw eat description to
+- **[01:52]** mandara up ticketed upper hand G because
+- **[01:54]** her manechan I owe you my a new
+- **[01:56]** low G minor don't get a boo-boo sale I
+- **[01:57]** want an EP didn't do pochittona past
+- **[01:59]** experience sitter ought to get it up her
+- **[02:01]** head energy chica chasse's hermanita
+- **[02:04]** yogi boo mignon main point to catch okay
+- **[02:06]** channel
+- **[02:06]** koichi maintainer main point to Capitola
+- **[02:08]** Minotaur cheeky main point to gulps
+- **[02:10]** imminent Hey
+- **[02:11]** Mandarin Kohaku piripi um John Doe olive
+- **[02:13]** good New York very young super happy
+- **[02:14]** main points to policing of her swinging
+- **[02:17]** up and over chatter damn it I couldn't
+- **[02:18]** get you monitor dead no detail cutting a
+- **[02:20]** single Margo can even point to my
+- **[02:22]** single committed midnight so she came a
+- **[02:24]** point to my scimitar sir couldn't you
+- **[02:25]** could you go to a fillers happy feelings
+- **[02:27]** girl I'm jumpy language on filler sir
+- **[02:28]** Samana Ananas cryptical abduction
+- **[02:31]** the demon Abu we go tada / hurt then
+- **[02:33]** come John Polk a second side EG detail
+- **[02:35]** pocus choker command I mean they're
+- **[02:37]** gonna young Superman together a Tsubaki
+- **[02:39]** officer but this is very crucial I do
+- **[02:41]** not want you guys to be detail-oriented
+- **[02:43]** instead these in any question I want you
+- **[02:46]** guys to be dealings oriented I'm a yogi
+- **[02:48]** past experience here main points of a
+- **[02:50]** Seneca Indiana okay so free star Hammond
+- **[02:52]** so conclusion Hammond Tomita yogi to me
+- **[02:54]** Oh Sammy tableman you got your Akagi
+- **[02:56]** past experience demon dessert domino
+- **[02:58]** game open Shearman end combo set that
+- **[03:00]** you get number to an even number three
+- **[03:02]** good on you I'm attune take an e Semper
+- **[03:04]** human ears are okay tell me what
+- **[03:06]** recycling was like when you were a child
+- **[03:08]** was there a particular place to which
+- **[03:10]** you took out the recyclables describe
+- **[03:13]** what it was like and what you did in
+- **[03:14]** detail ha
+- **[03:15]** each human or Yoshi go home until
+- **[03:17]** midnight I'm at the main point to get
+- **[03:18]** Peter ha Joe in the feelers in an Sonora
+- **[03:20]** game when I'm in his head on her mother
+- **[03:21]** on Jess I didn't tell any can you
+- **[03:23]** recycling hmm hey that's pretty
+- **[03:26]** interesting when I was a child I would
+- **[03:28]** have to say that you know recycling was
+- **[03:30]** quite organized I mean at least in my
+- **[03:32]** home anyway chayo get adapt sheet a
+- **[03:35]** groaner Nana script obseunikka changuk
+- **[03:37]** await the coupon and egg apoyo you go
+- **[03:39]** konami pero main point zero castle he
+- **[03:41]** main point who enjoy I can freestyle a
+- **[03:43]** pedo ham and salt humdrum focus no
+- **[03:45]** Hammond saw Abraham me a nun don't you
+- **[03:47]** two minutes hi dear Tsubaki upset I'm
+- **[03:48]** watching yoginah past experience with
+- **[03:50]** you mooning again past experience to my
+- **[03:52]** Yankee hit reception my present
+- **[03:54]** experiences or anguish permanent hodjam
+- **[03:56]** take chunky okay here they go
+- **[03:58]** how much the main pocus Annette has the
+- **[04:00]** experience in me that you need also
+- **[04:02]** either cam intimate now that I think
+- **[04:03]** about it I remember specifically my
+- **[04:06]** mother you know giving me the lowdown on
+- **[04:09]** how to recycle and then you know not
+- **[04:12]** before long it became my full
+- **[04:14]** responsibility it was a little bit
+- **[04:16]** annoying at times but I mean I had no
+- **[04:19]** choice anyway I learned to separate the
+- **[04:22]** cans
+- **[04:22]** paper
+- **[04:23]** glass in plastics and you know put them
+- **[04:27]** in their rifle bins cha yogi ditch one
+- **[04:29]** TW yo can I start to get man y'all
+- **[04:31]** opened it again
+- **[04:32]** you dick your freestyle I mean she kind
+- **[04:34]** of coalition to each other and they eat
+- **[04:35]** meals I'm listening I'm more level Hawk
+- **[04:37]** singing okay AR Joker car suing the
+- **[04:40]** bamboo bird I'm super hot namitha
+- **[04:42]** Curitiba model direct quotations direct
+- **[04:45]** quotations to the sim in Europe under
+- **[04:47]** the ginger capocaccia to the common yogi
+- **[04:49]** permanent I come out of the freezer
+- **[04:50]** talkative Naoki - in Ghana yogi by
+- **[04:53]** component I wrecked coat Asians Sam
+- **[04:55]** police I don't I shake up or kill now
+- **[04:57]** that I think more about it I remember
+- **[04:59]** specifically my mother giving me the
+- **[05:02]** lowdown on how to recycle she was like
+- **[05:05]** Sam make sure to separate everything
+- **[05:08]** Leo monami you can hand him my economic
+- **[05:11]** Umehara I read quotation Normandin go
+- **[05:13]** ahead sir Jackie you the Kanaka eat
+- **[05:15]** elevate all dynamic didn't I Oh Kirk a
+- **[05:17]** man again I'm under the past experience
+- **[05:19]** it they don't have ever hurt them but
+- **[05:20]** don't answer I mean 90 either ki get hit
+- **[05:22]** that Kugler pure aluminum to kill y'all
+- **[05:25]** I put even more so just a minute all
+- **[05:26]** clear I get to the committee no Guinea
+- **[05:28]** enjoy eating risotto Sam could you go to
+- **[05:30]** a talent young un Megan a hanja you look
+- **[05:32]** a single how we stopped a cure direct
+- **[05:34]** quotation or pure I wish permanent you'd
+- **[05:35]** okay she shot coming to me I thought to
+- **[05:37]** myself any meal and I was like that
+- **[05:39]** crunchy could really dress coffee shop
+- **[05:41]** idiot so they came up she I decided to
+- **[05:43]** try out a new coffee shop nearby my home
+- **[05:46]** that um you know just opened up when I
+- **[05:49]** got there americano I thought to myself
+- **[05:51]** holy cow this is amazing and um it truly
+- **[05:56]** was I mean I couldn't believe how
+- **[05:59]** wonderful it tasted tigey's hanging out
+- **[06:00]** apparent I wish for dinner whose hanger
+- **[06:02]** come jungle road take it jacket you
+- **[06:04]** should I read quotations and then OPEC
+- **[06:06]** head up a I can climax in the Dominican
+- **[06:08]** pokey grandmother telling me on on take
+- **[06:10]** a country totally go Danielle chronic at
+- **[06:12]** JFK a mental issue in enchanted garage
+- **[06:14]** you get you have underboob she Anika did
+- **[06:16]** her I was in chandrayaan-2 practice the
+- **[06:18]** art Gammons ha now you get jumped on I
+- **[06:20]** get a minute come to talk Iike her
+- **[06:22]** spacer I'm attorney on a boom past
+- **[06:23]** experience are you get hurt a direct
+- **[06:26]** quotations in their solution you tell me
+- **[06:28]** you're open to therapy
+- **[06:29]** Mukherjee tilaka
+- **[06:30]** this opaque dojin who don't come on like
+- **[06:34]** hug or air choke little cutter boom

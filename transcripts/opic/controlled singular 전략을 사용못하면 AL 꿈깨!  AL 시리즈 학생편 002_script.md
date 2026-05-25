@@ -1,0 +1,248 @@
+# "controlled singular" 전략을 사용못하면 AL 꿈깨! | AL 시리즈 학생편 002
+
+- **Video URL:** https://www.youtube.com/watch?v=dFw5ktXLHy0
+
+## Closed Captions Transcript
+
+- **[00:01]** no one you indicated that you go to
+- **[00:04]** coffee shops tell me about the cafes or
+- **[00:06]** coffeehouses in your community
+- **[00:08]** you're a boom this is pushing number two
+- **[00:11]** of our large nest which means this is
+- **[00:13]** the first question of our first combo
+- **[00:15]** sense the topic cafes Oh Rachel a cafe
+- **[00:19]** at the Yakima pardon me I'll seek easier
+- **[00:21]** to get league in in normal polyester Oh
+- **[00:23]** cafes could Canon go both I need to come
+- **[00:25]** and hit me that cafes I'm going dog have
+- **[00:28]** face yoga combo buna ziua indignant
+- **[00:30]** another saucer could kana Asumi also
+- **[00:32]** Sangha animals of appointments O'Hagan
+- **[00:34]** natural I can do Kissimmee that yoga
+- **[00:36]** Suen Ju or she can shoot on dopamine
+- **[00:38]** autonomous City Macintosh in touch with
+- **[00:41]** me that you did also cafes around my
+- **[00:43]** area right you didn't she go to hell
+- **[00:46]** both a critical your gain enjoy to Tony
+- **[00:48]** a cafes around my area
+- **[00:50]** oh my where do I begin no idiot can do
+- **[00:53]** shiitake at the gym I could in the key
+- **[00:55]** Mia I'm Cheung natural Hamidah Krieger
+- **[00:57]** yogi oh my - brunette I don't go to
+- **[00:59]** salted here it is Rosa oh boy where do I
+- **[01:02]** pick an enemy on ok where do I begin
+- **[01:08]** there's so many cafes nearby my home
+- **[01:11]** yogi rachana plural community can plural
+- **[01:14]** shiitake Romeo so katana may control the
+- **[01:16]** singular chokotto can enjoy oh yeah you
+- **[01:18]** know how got to me that naina each human
+- **[01:19]** a catchy air to head that that scary
+- **[01:22]** obseunikka your Nakajima Arango Cunha
+- **[01:24]** Hungama Monica that coup strategy me de
+- **[01:26]** cuyo get there harder
+- **[01:27]** hop chassé up error there are so many
+- **[01:29]** cafes you gotta throw that away Harlem
+- **[01:32]** unit there are myriads of cafes there
+- **[01:34]** are tons of cafes there are loads of
+- **[01:36]** cafes even gonna top option in me that
+- **[01:39]** so many buddha jumped off vocabulary der
+- **[01:41]** booth thought we should premiere now you
+- **[01:43]** don't see it oh hey blue chips you I can
+- **[01:44]** eat tonight
+- **[01:45]** don't you may wear go in the dirt there
+- **[01:46]** are hurt they can young there's little
+- **[01:48]** homie that there is when I'm incognito
+- **[01:50]** shoe nickel creek I you know there's so
+- **[01:52]** many cafes there's a myriad of cafes
+- **[01:55]** there's eternal cafes there's loads of
+- **[01:58]** cafes ego don't 1 John natural Hamidah
+- **[02:01]** technically when it comes to grammar it
+- **[02:03]** is incorrect but this is a language
+- **[02:05]** speaking test and if most people do this
+- **[02:08]** I would tend to go with the majority
+- **[02:09]** could go to Anand
+- **[02:11]** yeah oh yeah yeah yeah people put that
+- **[02:13]** young Polish person I couldn't bring to
+- **[02:15]** them you don't go to a talk show get it
+- **[02:16]** on so there's a myriad of cafes let me
+- **[02:19]** go get TL second apple ship show you
+- **[02:21]** know it's ubiquitous they're literally
+- **[02:23]** scattered everywhere
+- **[02:25]** ah yogi they aren't any time there you
+- **[02:28]** go none that they is Roja me and Amina
+- **[02:30]** humming up pick it till they get to they
+- **[02:32]** go we hate them on it Laurel weird Anika
+- **[02:34]** nedeau Jimenez okay then and yogi so
+- **[02:50]** Starbucks idea to some place yet it also
+- **[02:53]** leads to them under me on Hawk and I'm a
+- **[02:55]** control the singular little castle
+- **[02:57]** Kaneohe so yeah a weak point enough
+- **[02:58]** bucco shield energy dome thoughts are
+- **[03:01]** known as system you watch what's on yeah
+- **[03:02]** but there's this one place it's called
+- **[03:04]** coffee land you don't know if you're
+- **[03:06]** talking about hotels mention the name of
+- **[03:08]** the hotel if you're talking about a
+- **[03:10]** movie mention the title of the movie if
+- **[03:12]** you're talking about a restaurant
+- **[03:13]** mention the name of the restaurant
+- **[03:15]** these are details that should be
+- **[03:16]** automatic in your answers
+- **[03:18]** ciao Rachel need to get to the pizza but
+- **[03:19]** there's one place that I like know you
+- **[03:22]** took him to a detail Holloman there's
+- **[03:23]** this one place John touch while but
+- **[03:25]** there's this one place that I like
+- **[03:27]** because this place is like my home no
+- **[03:30]** more no more to us a minute Oh pick
+- **[03:31]** combo set to none hey gotcha category
+- **[03:33]** guy sir description habit past
+- **[03:35]** experience and comparison through goku
+- **[03:37]** combo set union moon jaga koi Khushi Pro
+- **[03:40]** description in the description a
+- **[03:42]** simulator summoner no much wild dog in a
+- **[03:45]** coffee shop huh go Nami like a similar
+- **[03:47]** stimulus Obama rachana the coffee shop
+- **[03:49]** is like my home quick attack dark Umaga
+- **[03:52]** main point to get the Sumida my
+- **[03:54]** your nobody show my heart that you can't
+- **[03:55]** kim jang taemi also hakama communal
+- **[03:57]** similarly got charted oh sing again let
+- **[03:59]** me a main point to my head or tail yet a
+- **[04:01]** draw so I love this place because it
+- **[04:03]** makes me feel so comfortable
+- **[04:06]** Yogi's hey got you chew on points at
+- **[04:07]** high again soon what is it coffee shop
+- **[04:09]** how do you feel about it I love it why
+- **[04:12]** because it makes me feel comfortable
+- **[04:13]** coos hey gotcha again I'm your Jonica
+- **[04:15]** main point to go to me what how do you
+- **[04:17]** feel about it and why yogi so choco taco
+- **[04:20]** whoops röpke Holliman
+- **[04:21]** either she go to Hammond Hamidah this
+- **[04:22]** place makes me feel like I'm
+- **[04:24]** home if phrase makes me feel it you
+- **[04:27]** can't are descriptive Chanukah money
+- **[04:28]** your lavender again to tournament we go
+- **[04:30]** to Rachel a parent a panel because so
+- **[04:33]** much hands-on power would say the angles
+- **[04:35]** under money because Roger you know there
+- **[04:37]** are so many in Korea but they are or
+- **[04:43]** Francis you're getting John Kramer it is
+- **[04:46]** also company now coop open and you'll
+- **[04:47]** get a second appointment Amina you know
+- **[04:49]** there's so many cafes in Korea but they
+- **[04:52]** are usually all franchises anemia but
+- **[04:54]** most of them are franchises now in a
+- **[04:57]** ratio to Korea Panama know much Harrison
+- **[04:59]** Korea hello Huck center yoga - Julia my
+- **[05:02]** I mean I'm controlled accomplishers have
+- **[05:04]** a 30 second a okay puno second Puma no
+- **[05:06]** no you parameter submitter rate children
+- **[05:08]** or no hassle but they are usually or
+- **[05:10]** franchises or the Anita all imita all
+- **[05:13]** but they are usually all ranch Isis
+- **[05:18]** franchise so there aren't many people
+- **[05:21]** what I like this place your get the
+- **[05:24]** choke on to the gate so glad you go to
+- **[05:25]** the second appointment to me that what I
+- **[05:26]** like about this place is that it's not a
+- **[05:29]** franchise so there aren't many people
+- **[05:32]** there yogi so John thought a h's toca
+- **[05:34]** toca la mina you to come in to me that
+- **[05:36]** what i like about this place is that
+- **[05:37]** it's not a franchise and so it's not
+- **[05:40]** overflowing with too many customers
+- **[05:42]** anymore and so it's not overflowing with
+- **[05:45]** too many loud obnoxious customers yo yo
+- **[05:48]** give hide and seek approval minute
+- **[05:50]** aren't a goalkeeper each and i aren't
+- **[05:52]** people
+- **[05:53]** okay minor hello said I'm done aren't a
+- **[05:55]** goalkeeper no money honey yo Rachel yo
+- **[05:57]** get a guitar sir okay I'll give people
+- **[05:59]** women and people all the you
+- **[06:01]** poor poor people can you choke on torch
+- **[06:03]** I also get to leave me on songs how
+- **[06:05]** badly has to do some people so it is
+- **[06:08]** and I feel relaxed so I like Olivia no
+- **[06:12]** he's so take it to home gonna so it is
+- **[06:14]** cozy and I mean so to talk he gets it
+- **[06:17]** cuts into the money young boy they're so
+- **[06:18]** confident sculpt some you know koi panel
+- **[06:20]** and Hannah Oh Huggle the new a little so
+- **[06:22]** it is cozy and relaxing portugee gonna
+- **[06:25]** nap Bumgarner Annie can a yogi Oh
+- **[06:27]** picture me to come to Chicago to go see
+- **[06:29]** permanent and haggle could town cannot
+- **[06:31]** hurt okay yeah I mean you get to keep
+- **[06:33]** worker here so it is cozy and I feel
+- **[06:36]** relaxed
+- **[06:36]** oh no no which way can I could town boom
+- **[06:38]** money I can do that Joe so I like go
+- **[06:41]** there you're getting till you're cool
+- **[06:42]** you can't you so I like to go there
+- **[06:45]** honeymoon I like going there ciao not
+- **[06:47]** simply to come out at me that something
+- **[06:48]** you ought to get on to a feeling to grow
+- **[06:50]** tomahawk I oh no even so it is cozy and
+- **[06:53]** I feel relaxed good time a joke um tells
+- **[06:55]** her mother I'm in the middle I mean it's
+- **[06:57]** just so relaxing whenever I'm there
+- **[06:59]** don't you get you got to cut their
+- **[07:01]** mother herself in they come John Rizzo
+- **[07:03]** contango Pune a good helmet that's why I
+- **[07:05]** love going there
+- **[07:07]** you didn't shake your own age oh come on
+- **[07:08]** come John people no cutting her mommy so
+- **[07:10]** Joe Kentucky a hominin my
+- **[07:12]** kitchen John will add our committee so
+- **[07:14]** it is cozy and I feel relaxed I mean
+- **[07:16]** it's just so relaxing whenever I'm there
+- **[07:19]** that's why I love going there I could go
+- **[07:22]** to another money hot sing the dinner
+- **[07:24]** song or take each one so this so that so
+- **[07:28]** talented Chi Minh can they utter time
+- **[07:30]** that's why godo helps you if you do that
+- **[07:32]** you will sound even smoother so try to
+- **[07:35]** mix it up so that's why you know I
+- **[07:38]** already told you in my introduction but
+- **[07:41]** they usually play kpop songs that I like
+- **[07:46]** so I really appreciate it
+- **[07:49]** cha yogi so Natura a ratio kitchen for
+- **[07:52]** point yeah but you know what I already
+- **[07:54]** told you in my introduction Rachel and
+- **[07:57]** chicken introduction again kpop song
+- **[07:59]** dinner
+- **[08:00]** yogi cafe top again Omura Hannah Graham
+- **[08:02]** you camera at home Chancellor Patterson
+- **[08:04]** pocket of soil can they take a
+- **[08:06]** battleship Anissa combo set junior I got
+- **[08:08]** you got a great job your hundred
+- **[08:09]** inhabits me that habits and main point
+- **[08:11]** to help go can a freestyle go you can go
+- **[08:13]** free started
+- **[08:15]** circa modern money hurts women skiers
+- **[08:17]** are ok um Jim Thornton a countryman an
+- **[08:19]** introduction a a get bigger crew habit
+- **[08:22]** to moon a younger Hammond home our money
+- **[08:24]** our Sweeney you guessing ego could
+- **[08:25]** charge or habit question desert dr.
+- **[08:27]** Koontz Rob Kadel issue in this strategy
+- **[08:29]** meter change a yogi Rachel eight hit up
+- **[08:31]** hunger jump toe aah Joker contaminant
+- **[08:33]** you don't she go home in the middle you
+- **[08:34]** know it's funny haha take it looking gay
+- **[08:37]** cell anemia Oh take action game you
+- **[08:39]** don't need comida you know it's funny
+- **[08:41]** since I feel like myself here and that
+- **[08:43]** they also play kpop sometimes I can't
+- **[08:46]** even tell whether I'm at home or at a
+- **[08:48]** cafe Rachel on conclusion eight you
+- **[08:51]** can't say oh so I really appreciate that
+- **[08:53]** grupo de choclo to rocket conclusion or
+- **[08:56]** mmm oppa Congo English conversation I go
+- **[08:58]** to national are coming up this is obey
+- **[09:01]** no J Kudo cut would like have an e al
+- **[09:04]** series get money Tommy doesn't smell
+- **[09:05]** choke yourself boom

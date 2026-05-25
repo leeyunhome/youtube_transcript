@@ -1,0 +1,292 @@
+# 오픽에 재미있는 TMI 답변을 준비해보세요! | IM 시리즈 005
+
+- **Video URL:** https://www.youtube.com/watch?v=SZv5_EHRiYE
+
+## Closed Captions Transcript
+
+- **[00:00]** young away Yong Yong Aloha her poem do
+- **[00:04]** you have a difficult time thinking about
+- **[00:06]** a past experience story young San I am
+- **[00:10]** had seemed to wear some unknown g-man
+- **[00:11]** creator I Ajax indeed or money told me
+- **[00:14]** Teresa - Teresa - yeah I get a mandolin
+- **[00:17]** game could okay audio I'm gonna uneasy
+- **[00:19]** man okay wind you Oh big humor hurt
+- **[00:21]** there noon cooky I'll get her share Hana
+- **[00:23]** Gateway to kill horrible joke could on
+- **[00:24]** the part of Jackie got the most serious
+- **[00:26]** hug I think I can the gun how she could
+- **[00:28]** okay I know they own their normal candy
+- **[00:30]** tell all your kids hang out go hunting
+- **[00:31]** going honestly you don't have to give
+- **[00:33]** some crazy big Hollywood story it could
+- **[00:37]** be a very simple story condition I am
+- **[00:40]** take a Hannah Portobello to the game
+- **[00:42]** often ya get hurt there don't
+- **[00:44]** yagi animal Pangu yagi cougar attack
+- **[00:48]** come on help us here hope you a
+- **[00:49]** completely unexpected story could be up
+- **[00:52]** to munch hey mr. Coyle can get your up
+- **[00:54]** underdog yeah get him yourself
+- **[00:56]** tortured her I can't lose to me now
+- **[00:58]** Tsubaki up Goku OPIC grade early I'm cha
+- **[01:01]** music where wait I don't Hudson to
+- **[01:03]** connect hey me on the Yangon hand in
+- **[01:04]** there Shekinah Oh bong goo yeah get
+- **[01:07]** honey gun it's gonna feel very new and
+- **[01:09]** fresh pressed punku-- for a stone I'm
+- **[01:12]** attempting that you got chicken semper
+- **[01:14]** to get her name Hannah what expression
+- **[01:16]** search on a ludic a charm on Topanga
+- **[01:18]** wait a so they got either share haggis
+- **[01:21]** Amida Arcana Yoda boom
+- **[01:23]** he hung go mad away Takei colm Iike your
+- **[01:25]** upon eat Hannah are Tameka part
+- **[01:27]** door Parton entangled warnin Muni
+- **[01:30]** channel caption Miran Pangu mundo
+- **[01:33]** topango booney stationery store Tamika
+- **[01:36]** take a ginger a hunter a hug with Sonia
+- **[01:39]** a Merton number one let er rip
+- **[01:42]** enemy on let one rip you're gonna change
+- **[01:45]** a Pangu it is a warning means who join
+- **[01:48]** me da cunha fr Tommy I can't shooting
+- **[01:50]** the kimmiegold coulda goes for chick it
+- **[01:52]** could open grader day come on could
+- **[01:53]** impressed in the Kimmie I'm not going
+- **[01:55]** good day let it rip hammy honor crew
+- **[01:58]** Oprah crater duty pas it can open up my
+- **[02:00]** song
+- **[02:01]** wow you moon you're watching Kim Jong
+- **[02:02]** Kook Ricky Dicky committee critical
+- **[02:05]** Yogi's a choco taco Buddha hominin heck
+- **[02:07]** is he mr. rip took a Busan to Shamika
+- **[02:09]** Tony cheetah cub achievement a hippo
+- **[02:12]** sale nah
+- **[02:12]** upon google normal sahaja go Joey
+- **[02:16]** don't go Momiji jaja uh wrong glass here
+- **[02:20]** creo manikyam chamcham Johnny Ibaka with
+- **[02:22]** me alone
+- **[02:23]** no more chase or hassle I'm rotten
+- **[02:24]** qur'an good Kimi Mita so can you imagine
+- **[02:27]** you using this very natural heart
+- **[02:30]** expression as you are telling your story
+- **[02:33]** it's gonna be so impressive I can
+- **[02:35]** guarantee it
+- **[02:36]** current ke expression at all boon
+- **[02:38]** Chandra Hanuman durable Sheena and the
+- **[02:40]** woody to your opaque has the experience
+- **[02:42]** you moon dear chicken today poor honey
+- **[02:44]** can you get to your past tense Raquel I
+- **[02:46]** needed to let it rip come on Tom I
+- **[02:48]** needed to let it rip number two cut
+- **[02:51]** cheese y'all open to the eagle eye
+- **[02:53]** lunchable look at you man joy its
+- **[02:55]** stepfather D Italia namida no trigger
+- **[02:58]** hopes are to capture he picking them
+- **[03:00]** check out would she be uncoil condemned
+- **[03:02]** become Chucky
+- **[03:02]** oh he became my father I'm an Italian
+- **[03:05]** didn't she's um Tom anemic John I'll do
+- **[03:08]** the autumn cheese didn't don't hug your
+- **[03:10]** names in the midde your own young barman
+- **[03:13]** come name's Jo can I naturally angel
+- **[03:15]** tsukitachi man hey get Shinji Adric well
+- **[03:17]** could you hurry up on me give me cheat a
+- **[03:19]** bunch of names at a night then shocker
+- **[03:20]** para su take a good tip Oh together ah
+- **[03:22]** sir ah there's a lot of cultural
+- **[03:25]** differences in this world a motive cut
+- **[03:27]** cheese
+- **[03:28]** ego do Pangu Amita okay bunch Akram
+- **[03:30]** Amanda Boop cheetah I was at Starbucks
+- **[03:32]** and all of a sudden I had to cut cheese
+- **[03:36]** come on dawn I was a Starbucks and all
+- **[03:38]** of a sudden I had to cut cheese
+- **[03:40]** number three Thunder from Down Under you
+- **[03:43]** gonna talk to me Jenna when I mean it's
+- **[03:45]** rhyming you know um gigabit a metadata I
+- **[03:48]** want to eagle odo wooden hammer mandible
+- **[03:50]** cheetah I was at the bar with my friends
+- **[03:52]** the other day and all of a sudden I felt
+- **[03:56]** a little Thunder from Down Under
+- **[03:59]** humbled uh I was at the bar with my
+- **[04:00]** friends the other day and all of a
+- **[04:02]** sudden I felt a little Thunder from Down
+- **[04:04]** Under
+- **[04:04]** number four silent but deadly this is a
+- **[04:08]** true fact
+- **[04:09]** she's a kooky hominin my name's Hannah
+- **[04:11]** now go yeah touch of malaria known names
+- **[04:14]** like a book not on I hope I'm at the
+- **[04:15]** girl Amanda booster I cut cheese in the
+- **[04:18]** restaurant and I was hoping that no one
+- **[04:21]** would find out I mean it was silent but
+- **[04:25]** deadly
+- **[04:26]** Hamada I cut cheese in the restaurant
+- **[04:28]** and I was hoping that no one would find
+- **[04:30]** out I mean it was silent but deadly
+- **[04:33]** charge it woody Gaia days huh
+- **[04:36]** y'all got your expressions the dirt pero
+- **[04:38]** boceta number one number one number one
+- **[04:42]** an OB on Damita you're gonna pull an
+- **[04:45]** easy man Chris Aliotti reticles at I saw
+- **[04:47]** you kiss her Brando Hannah Goya number
+- **[04:49]** two number two don't heckle I hope man
+- **[04:51]** number two new guy me that debut on take
+- **[04:54]** a humble hung go get quarter cup almond
+- **[04:57]** as a suitor ahead the Sun in their joy
+- **[04:59]** suzer now Honey Creek a nose haha
+- **[05:01]** tabletop better you can they cook dinner
+- **[05:03]** take a table noble luck that you go he
+- **[05:05]** gonna blow it up i couldnt you go or
+- **[05:10]** goody bag a me on so off to gets her
+- **[05:12]** really Heather G we lose that I will
+- **[05:13]** that could take a year ahead you go kook
+- **[05:16]** I know Santa Tigger go Charo yogacara
+- **[05:18]** Joseph Smith who got a gorilla came at
+- **[05:19]** at your number one is hope Ian number
+- **[05:22]** two is Debian number three take a dump
+- **[05:26]** you gonna change out a 1 John wanna me
+- **[05:27]** suit you nail this is high-class poo
+- **[05:30]** right here could it go dump Onan sadeghi
+- **[05:32]** go Daniel so it's making a connection
+- **[05:34]** with your poo and garbage no he's a
+- **[05:37]** bunch Anaheim under pops it up I felt
+- **[05:39]** like taking a dump
+- **[05:40]** during the meeting oh the timing was
+- **[05:44]** terrible humbled uh I felt like taking a
+- **[05:46]** dump
+- **[05:46]** during the meeting oh my gosh the timing
+- **[05:49]** was terrible
+- **[05:50]** number four deuce its deuce means to
+- **[05:53]** Guernica number two tano hoggle yeah
+- **[05:55]** computes time to give me sir how can he
+- **[05:57]** go tuck in Tijuana means er yeah take an
+- **[05:59]** impressive hunt on ome de you will
+- **[06:01]** definitely impress any English speaker
+- **[06:03]** if you can use this word naturally
+- **[06:06]** commander Bob Sheila I had to do sit
+- **[06:09]** Hammond oh I had to do sit eat hello
+- **[06:12]** noon it took a optimally occur also cash
+- **[06:14]** to do Seneca Karanka deuce it's real
+- **[06:16]** catchy case of time has here dioxygen
+- **[06:18]** cigar I am IH su Janeiro no more
+- **[06:21]** inaudible karaoke tan odors hyomezo
+- **[06:24]** he dubs emperor hammer he broke a cheese
+- **[06:26]** Moonen comments at times templates
+- **[06:28]** coisa ego Bozzio a motor to gotti Sempra
+- **[06:31]** hockey the fart sample could go to
+- **[06:33]** Montana the poo sample let's get it
+- **[06:35]** leggo problems at the beach well okay
+- **[06:39]** let me tell you
+- **[06:40]** about a problem of me letting it rip in
+- **[06:44]** front of my wife at the beach and it was
+- **[06:49]** one of the most embarrassing things I
+- **[06:52]** had to go through right and we were in
+- **[06:55]** Spain and we were just finding a nice
+- **[06:58]** spot at the beach and as I was bending
+- **[07:01]** over to pick up something you know
+- **[07:05]** something came out and my wife was
+- **[07:08]** laughing so hard and you know the way
+- **[07:12]** she was laughing I was just so
+- **[07:14]** embarrassed you know and I started to
+- **[07:18]** laugh too of course but I couldn't
+- **[07:20]** believe that happens you know like it
+- **[07:22]** was so loud we were outside at the beach
+- **[07:26]** and yet you know it was as clear as day
+- **[07:31]** and I could never forget that moment so
+- **[07:34]** basically whenever we go to any beach my
+- **[07:38]** wife always reminds me of this story all
+- **[07:43]** right you're a boon I tried my best to
+- **[07:45]** make this answer short and simple and
+- **[07:48]** yet advanced enough for you to get a
+- **[07:51]** high mark Choi Yeojin and Pangu you sir
+- **[07:53]**  man take a car come on go Sheikh
+- **[07:55]** it's illegal could you go audio Donald
+- **[07:57]** Romani and so Sumida you're open to the
+- **[07:59]** ether she groped Boni her sweets and
+- **[08:01]** again he scripted away coochie MA her go
+- **[08:04]** Pangu neonate estas hanga cameo saw my
+- **[08:06]**  yo de bunda de ya get er him
+- **[08:09]** diraja me own own Pangu yeah give us a
+- **[08:11]** chance we go into a sample - don't ya
+- **[08:13]** get him ok oh ok I get you man G mu nu
+- **[08:15]** times templates meter all right well I
+- **[08:17]** have a very interesting story to tell
+- **[08:20]** you because basically the other day I
+- **[08:23]** was riding my bike and I felt like I
+- **[08:27]** needed to take a dump but the problem
+- **[08:31]** was you know there was no washroom
+- **[08:33]** nearby and so I was riding this bike
+- **[08:37]** very slowly and kind of standing up if
+- **[08:41]** you know what I mean and it was just
+- **[08:44]** such an uncomfortable situation because
+- **[08:47]** oh my gosh you know I was experiencing
+- **[08:51]** turtlehead Oh
+- **[08:53]** my goodness it was an emergency
+- **[08:56]** situation but luckily I was able to find
+- **[09:00]** Starbucks oh thank goodness for
+- **[09:04]** Starbucks and of course you know I had
+- **[09:07]** to just rush in and you know unload my
+- **[09:11]** beast after that I felt so relieved
+- **[09:16]** ciao y'all Guinea Yakka audio or sudou
+- **[09:18]** risa so catchy I take a container bahama
+- **[09:20]** self no more super super panel delete
+- **[09:22]** the whole thing again I have to go
+- **[09:24]** genius awesome
+- **[09:25]** Chiquita no turtlehead w busan Tameka
+- **[09:29]** pocket cream gonna happen if goose had a
+- **[09:32]** hammer and any gun yeah
+- **[09:35]** he gave it a lycanthrope Joe Oh chase no
+- **[09:38]** hassle no tree you could seems a good
+- **[09:40]** annoying me that clerk to Nanjing
+- **[09:43]** edge hi Tony idea song Guzman and I
+- **[09:45]** unleash my beast he came along gonna
+- **[09:48]** tell no hay ningún and kamu tidak man
+- **[09:50]** even to Kim you know pick a teddy bear
+- **[09:52]** head Samina I'm watching even got hot
+- **[09:53]** dawn
+- **[09:54]** you don't even today's watching at home
+- **[09:55]** or a purse is tellin ya k hinders and I
+- **[09:57]** own Tony yog and they got here did she
+- **[09:59]** can I change I take it connect and
+- **[10:01]** alligator tail cricket icky your upon
+- **[10:03]** today Pangu animal guide Ian yeah Giga
+- **[10:06]** is simeon panda chicks you say Charo
+- **[10:09]** okay Tameka Tilly comida can I manage
+- **[10:11]** hugging in tangu animal guide and yogi
+- **[10:14]** copter Connecticut simple archaic a head
+- **[10:17]** to tail our couch and I gots hatching
+- **[10:18]** understanding there can accrue not a
+- **[10:20]** normal connection gr gay could help
+- **[10:23]** ichido Papa I got to go you know Matt
+- **[10:26]** also know more shirasu not a world a
+- **[10:28]** charger go to know much one day or can
+- **[10:31]** accrue knowledge enjoy ya know maitake
+- **[10:33]** stricter sheep Oberon and check out that
+- **[10:35]** I'm a poor porn I got you go can you
+- **[10:37]** hire so up she often control can a
+- **[10:40]** Starbucks Church hodja hodja go connect
+- **[10:42]** all this we're gonna shimmy on so
+- **[10:44]** am Walter Chaco nursers hot you go
+- **[10:47]** Canyon take a cocky so relax the head
+- **[10:49]** Sumida wash Sita Oh piggy no Makapuu
+- **[10:51]** dinero capture camera figure Hanukkah
+- **[10:54]** damn in here anyways if you ever have
+- **[10:56]** difficulty sharing some sort of story on
+- **[10:59]** the Opie test think about a fart or poo
+- **[11:02]** story to us
+- **[11:03]** when I say this your poo we'll get you a
+- **[11:06]** high mark oh I could ago I am sound hon
+- **[11:09]** thank you so much for taking the time to
+- **[11:12]** make them time stamps for my general
+- **[11:15]** English young golf hey West video number
+- **[11:17]** 11 that kind of support really does help
+- **[11:20]** me though I would like to show you my
+- **[11:21]** appreciation by sending you a 10,000 won
+- **[11:24]** Starbucks gift card mine and gone Ananya
+- **[11:26]** when I'm gonna take a hundred Omaha
+- **[11:28]** dannika I'm with an e Young Saeng in
+- **[11:30]** comments a email alert you say you take
+- **[11:32]** a pair o Starbucks gift card alert
+- **[11:34]** holy dude gets to meet us peace

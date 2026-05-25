@@ -1,0 +1,331 @@
+# 오픽이 어려워졌다고? 이 영상으로 자신감 뿜뿜! | AL 시리즈 학생편 011
+
+- **Video URL:** https://www.youtube.com/watch?v=RX_Q-pOFn-E
+
+## Closed Captions Transcript
+
+- **[00:00]** so Jay I heard that you had the first
+- **[00:01]** day of the dance lesson like what kind
+- **[00:04]** of dance oh yeah it was hip-hop
+- **[00:06]** Oh hip-hop like how often do you go
+- **[00:08]** there I mean it was my first day but the
+- **[00:10]** teacher told us that it was gonna be
+- **[00:11]** like three times a week three times a
+- **[00:14]** week that's pretty often maybe I should
+- **[00:16]** come with you oh my gosh please are you
+- **[00:18]** yes cuz I've always wanted to learn
+- **[00:21]** hip-hop dancing oh my gosh please come
+- **[00:23]** with pay for you Oh young away young
+- **[00:28]** don't know Aloha Ella boom
+- **[00:30]** yo picture me tonight oh yeah watch the
+- **[00:33]** goose me that in the other Bunch in chat
+- **[00:34]** can't answer in a chance a summer huh Go
+- **[00:36]** Go you're a bundle in my armor help
+- **[00:37]** you're not get hurt any coach Joe Hachem
+- **[00:39]** a saukerl ee young son good gotta pull
+- **[00:41]** Goku but I get a dick though I need time
+- **[00:43]** you know who to our button to lose your
+- **[00:44]** poise oh yeah that's true
+- **[00:53]** in what sense how did it get more
+- **[00:55]** difficult now this is just in theory
+- **[00:56]** right I'm not a hundred percent sure but
+- **[00:58]** I feel that it's getting more difficult
+- **[01:00]** because a lot of the students now are
+- **[01:03]** getting the marks high mark because I
+- **[01:05]** don't pick no Jim I'm not implying
+- **[01:08]** anything reality is that test is getting
+- **[01:11]** harder so why are they making it harder
+- **[01:12]** it must be because of the results it
+- **[01:14]** makes sense though even for like
+- **[01:15]** education like every year they do get a
+- **[01:17]** little more tough you know if a lot more
+- **[01:20]** students get the higher marks right and
+- **[01:21]** they have no choice but to make it a
+- **[01:23]** little harder target or what else
+- **[01:25]** everyone's gonna get the best man so how
+- **[01:27]** do you think they should study like or
+- **[01:29]** to prepare for their next big test
+- **[01:32]** that's a good question so basically
+- **[01:33]** there's a role play section where you
+- **[01:35]** have to pretend you're someone else so
+- **[01:37]** they'll actually give you a situation
+- **[01:39]** and then you have to literally imagine
+- **[01:41]** that you're that person in that
+- **[01:43]** situation and you have to kind of act it
+- **[01:44]** out so there's something called roleplay
+- **[01:46]** 11th that's the first roleplay question
+- **[01:48]** and it used to be mostly about money or
+- **[01:51]** purchasing okay in a retail environment
+- **[01:53]** kind of yes again behind a phone they're
+- **[01:56]** buying it
+- **[01:57]** computer whatever and basically they
+- **[01:59]** just have to interact with the other
+- **[02:01]** person and buy something right so I had
+- **[02:03]** a certain strategy for that so if money
+- **[02:05]** is involved use my strategy you're good
+- **[02:07]** but days they're changing it up it's not
+- **[02:10]** just fun one it's about like situation
+- **[02:13]** so it's kind of like a real life very
+- **[02:14]** very own scenario yeah so because of
+- **[02:17]** that you know they cannot use my money
+- **[02:19]** strategy so it's more freestyle how long
+- **[02:21]** it'd be like okay yes the test itself is
+- **[02:23]** 40 minutes Wow is 40 minutes 40 minutes
+- **[02:26]** wow that's pretty long that's what I
+- **[02:27]** yeah here at conversation 40 minutes
+- **[02:30]** that question is you're exactly and it's
+- **[02:32]** a 15 questions 15 questions so you have
+- **[02:35]** to literally time yourself because
+- **[02:36]** they're not gonna say like okay each
+- **[02:37]** question is this amount of time right so
+- **[02:39]** you have to pace yourself it's like two
+- **[02:41]** or three minutes kind of yeah I tell my
+- **[02:44]** students you know what a minute minute
+- **[02:45]** thirty is perfect some students finish
+- **[02:47]** that under twenty minutes okay so
+- **[02:50]** there's no like set timer a lot of
+- **[02:52]** students they have a misunderstanding of
+- **[02:53]** okay the longer the answer the better
+- **[02:55]** along it's not quality so that's true
+- **[02:57]** quality over if you make it longer
+- **[02:59]** there's more chance for mistakes dude
+- **[03:01]** that's exactly what I say yeah you know
+- **[03:03]** what in the end it's true so you know
+- **[03:04]** what if you're not that confident in
+- **[03:05]** something keep it simple keep it clear
+- **[03:08]** kiss keep it simple stupid that's right
+- **[03:10]** did you know that Einstein read that
+- **[03:12]** okay according to rumors but if he says
+- **[03:15]** kiss we got to keep kissing do you
+- **[03:19]** I guess free like a role play type of
+- **[03:21]** scenario which is fitting as well oh so
+- **[03:23]** I gather all those questions from
+- **[03:25]** students Pookie you know they took the
+- **[03:27]** test to tell me what the questions are
+- **[03:28]** and then if I see that all now it's kind
+- **[03:31]** of different so now I'll share
+- **[03:33]** strategies database I do yeah that's
+- **[03:36]** pretty good
+- **[03:36]** but for me it's not really about okay
+- **[03:38]** let's make a script and memorize right
+- **[03:40]** it's about the strategy I'm you
+- **[03:42]** freestyle how do you do yes it is
+- **[03:44]** getting harder but we don't have to
+- **[03:45]** worry too much cuz now this is our
+- **[03:47]** opportunity
+- **[03:48]** actually increase our English skill
+- **[03:50]** that's true you know what I mean yeah
+- **[03:52]** and then the marks will come
+- **[03:53]** right yeah bhumata no tomato
+- **[03:55]** pick-and-roll play there's the money or
+- **[03:57]** jakku so Jung sang ro / 11 a date so
+- **[04:00]** chip you reckon then did you tell my
+- **[04:01]**  you're a Bundy I think he wrote
+- **[04:03]** play 11 and don't damage your boy no
+- **[04:06]** tongue jump was a Kogi in introductory
+- **[04:08]** tire GUI Yongsan Pullman of Horsham
+- **[04:10]** don't want me to come atomically on
+- **[04:12]** Sketchup Ruben they got the Kohaku audio
+- **[04:14]** would role play 11 catches me that has
+- **[04:17]** to show many cricket dialogue ago opto
+- **[04:19]** cut Amanda Kaur hug a bunch of warm up
+- **[04:20]** Hammond sir who Taylor most of Ramones
+- **[04:22]** apoyo jugo can let me take a Tashi
+- **[04:24]** Nicole hunter inject order bagel how do
+- **[04:26]** I go ahead sir I want to eat a role play
+- **[04:27]** 11 the audio Janica can have more dance
+- **[04:30]** lessons they appear so robotic opal
+- **[04:32]** Dannon became okay gurgling didn't
+- **[04:33]** coital d-pad situation a days huh
+- **[04:36]** thought you'd get blue by there look at
+- **[04:37]** how to get women in the complicated
+- **[04:40]** hidden good job yeah can eat okay your
+- **[04:42]** friend just took his first dance lesson
+- **[04:43]** you are also considering taking it as
+- **[04:45]** well ask your friend three or four
+- **[04:47]** questions about his first class to see
+- **[04:49]** if he should sign up with him so Jay I
+- **[04:50]** heard that you had the first day of
+- **[04:52]** dance lesson like what type of dance was
+- **[04:55]** it Oh hip hop dance really I've always
+- **[04:59]** wanted to learn hip hop dancing
+- **[05:01]** how many times do you go there in a week
+- **[05:03]** Oh three times a week
+- **[05:07]** Wow maybe I should come with you what
+- **[05:10]** you're gonna pay for me to have no
+- **[05:12]** excuse not to come
+- **[05:14]** yeah definitely call me tomorrow so Jay
+- **[05:17]** I heard that you had the first day of
+- **[05:19]** dance lessons
+- **[05:20]** Oh Jay I heard that you had your first
+- **[05:21]** day of dance lessons no taboos hoodie
+- **[05:23]** guy you can hold your own roleplay 11
+- **[05:25]** hug then I'm going to give free style
+- **[05:27]** chakra hair this and I hope you do get
+- **[05:28]** your locker
+- **[05:29]** yeah II roleplay 11th when your sample
+- **[05:31]** that I can't hardly wait or how much
+- **[05:33]** exactly ghost are you gonna freestyle in
+- **[05:35]** the can you're at its Hannah wait hurry
+- **[05:36]** sir oh can the my Yoda Bundy you
+- **[05:38]** just research or a boost and ah I'm
+- **[05:40]** gonna try her to the wall up tockman it
+- **[05:42]** can't hide her locket that ahem say no
+- **[05:44]** it's under Cody that one HR has Sumida
+- **[05:46]** cool amparo head - Naomi's harm young
+- **[05:49]** Yogi's here - yamo mica head - dad you
+- **[05:52]** named axel no he did - pooping the
+- **[05:55]** change in your hassle no bikini - hunan
+- **[05:57]** a brother comida
+- **[05:58]** what type of dance was it step 2 shot
+- **[06:00]** Jima
+- **[06:01]** like what type of
+- **[06:02]** this was it step 3 honeyBun matter
+- **[06:05]** oh you're Judah oh hey pop - hey yogi
+- **[06:08]** order Joe UK reaction or stuck
+- **[06:10]** kind of gonna do judge Shoreham either
+- **[06:12]** you go to all about the pattern way the
+- **[06:14]** Harris wicked Joe huh hip-hop dance what
+- **[06:16]** hip-hop dance hip up there
+- **[06:19]** whoa hip hop dance really step 4 they're
+- **[06:22]** not opposed East f42 get you Yama - okay
+- **[06:25]** you're open to the IHS or a haircut
+- **[06:26]** akaku tsuyoku y'all got a internation -
+- **[06:29]** pooja wedding Colonel Campbell case okey
+- **[06:32]** game a turning gay home gonna any good
+- **[06:33]** in your chart and JFK madam and sir Oh
+- **[06:36]** certainly key cameraman song who rhythm
+- **[06:38]** urgent a no wait oh hey stop oh joy
+- **[06:40]** Demeter okay I'm not a yoga stockinette
+- **[06:41]** Utah man he became hominid yogi poop in
+- **[06:46]** Italy calm down you two really Buddha I
+- **[06:49]** don't wait the hard to get you are you
+- **[06:50]** serious for real
+- **[06:51]** yogi so for real heart there's imminent
+- **[06:54]** okay you think it to limit that for real
+- **[06:56]** oh yeah that's interesting
+- **[06:58]** oh really I've always wanted to learn
+- **[07:00]** hip-hop dancing Steph five haggler
+- **[07:03]** whoo I'm able to I've always wanted to
+- **[07:05]** learn hip-hop dancing Kyoto boom steps
+- **[07:07]** three and four nun who's hung there by
+- **[07:09]** Iggy Hannah gonna repeat the diamond saw
+- **[07:11]** would he come jogger jump oil jimin's
+- **[07:13]** huh younger Hannon going yogi Step five
+- **[07:15]** inin would egaku stand upon him a tango
+- **[07:17]** at his home - kissing a girl Helen Jeep
+- **[07:20]** Eugene Graham he five steps to take a
+- **[07:22]** cantilever jima massager communications
+- **[07:24]** her luck today oh my oh my Sumida I want
+- **[07:26]** to bro play 11 inch human art enjoyed
+- **[07:29]** this and I hope you recognize him at
+- **[07:30]** enjoyment Amita yogi steps two three
+- **[07:32]** four five winners in Wantagh Hammond
+- **[07:35]** Hale step one Apache repeat a little
+- **[07:37]** degree Oh homie how about my own game
+- **[07:38]** take it you how many times you
+- **[07:40]** go there in a week oh three times a week
+- **[07:45]** chayo he's gonna record a step to the
+- **[07:47]** tickets Harrison you go yogi step two
+- **[07:49]** ninja to bond to Germany Joe how many
+- **[07:51]** times do you go there in a week and this
+- **[07:54]** has a continually you're gonna know more
+- **[07:55]** oka Seneca and I'll get you merely a
+- **[07:57]** controller he broke a know how often are
+- **[08:00]** you thinking about going
+- **[08:01]** no he time in Dakota step three tickets
+- **[08:03]** how to sir Oh three times a week he
+- **[08:05]** stepped through the Kanako you could
+- **[08:07]** injure paddle hey Burgess humor
+- **[08:08]** accustomed me down in the toy to turn on
+- **[08:10]** that for hat was that five tycoon
+- **[08:12]** economists a bunch of German Italian
+- **[08:14]** game Carson don't go customer doesn't
+- **[08:16]** step four and step five hunka burnin
+- **[08:17]** okay oh oh yeah I think that's something
+- **[08:19]** I could do as well
+- **[08:20]** Wow maybe I should come with you what
+- **[08:23]** you're gonna pay for me too I mean no
+- **[08:25]** excuse not to come
+- **[08:27]** yeah definitely call me tomorrow Tata
+- **[08:29]** boys Yogi's it's hard to hustle recoded
+- **[08:31]** yoga teacher how does to me that don't
+- **[08:33]** hinge it would he step to go ahead Wow
+- **[08:35]** maybe I should come with you condemned
+- **[08:37]** as step three dick I come against Joe
+- **[08:39]** what you're gonna pay for me two times a
+- **[08:41]** yogi tell me step for the Hareton and a
+- **[08:44]** poet China gusta buncha to moon mm
+- **[08:46]** connect ooh step for the skip Huckle
+- **[08:48]** paddle step five with Oldcastle
+- **[08:50]** no excuse not to come definitely call me
+- **[08:53]** tomorrow
+- **[08:54]** no he's so stable teach human ancho
+- **[08:55]** Ponte Djimon Hounsou budgets ammonia
+- **[08:57]** can't holiday Hanna Yunnan kupatana jump
+- **[08:59]** target pointing where that can either
+- **[09:01]** karamaneh
+- **[09:01]** to OPEC raid early cattle I'm Nikki Coco
+- **[09:04]** you're a bundle a communication tool a
+- **[09:06]** girl you John require who know yo get
+- **[09:08]** step for the hit team are coming up I'm
+- **[09:10]** gonna miss you man I'm not include the
+- **[09:11]** eBay store how more hippo sales you
+- **[09:13]** turning me de I what's in your boom
+- **[09:15]** nobody the Ebro play 11 keep on her luck
+- **[09:17]** today
+- **[09:17]** I need young sir promised a master date
+- **[09:19]** a me on you know step through capital
+- **[09:21]** tale
+- **[09:21]** you don't elect an important in Canada
+- **[09:23]** yeah you're a bullet a was Hector
+- **[09:25]** attachements home go low in say you
+- **[09:27]** don't selected her case our kupuna oil
+- **[09:29]** chemical open grader disease it's just
+- **[09:31]** scripted or and icky comida we're just
+- **[09:33]** cryptically confectionery boons you
+- **[09:35]** really current a llamo kombucha to grow
+- **[09:38]** together territory in the pump up the
+- **[09:39]** don't have a pair poor guy Oh Nicole de
+- **[09:46]** gallo water you are working at SEMA
+- **[09:52]** Cuauhtemoc kept a Cassidy companion
+- **[09:55]** Tomica said the body Tara unknown okay
+- **[09:57]** good I thought they got your pom-pom
+- **[09:59]** Bhavana cold up s holes all they got cuz
+- **[10:01]** how am I want to touch it water on them
+- **[10:03]** because I'd see or call they got KOCO
+- **[10:07]** dodging in in like how much money I get
+- **[10:09]** it how do mundo otaku hugging the no
+- **[10:12]** Severus song like a blue sit down
+- **[10:13]** darling come on Barney hey saw Chris a
+- **[10:15]** cold record a guy owns everyone yes the
+- **[10:17]** era demasiado simple and look to see him
+- **[10:19]** yoshiya Rome could go to Tom and you
+- **[10:21]** support them on what time I said hepta
+- **[10:22]** do you have the time what time is it now
+- **[10:25]** over time it is you don't get home
+- **[10:27]** john-boy pillaji second you know what ah
+- **[10:39]** good TV alignment they are acting upon
+- **[10:43]** iike honking Adam said to bring gamma Fe
+- **[10:45]** onekotan good as all not to be going oh
+- **[10:49]** goodness awesome they got Chief Jim
+- **[10:51]** words how I give years on children take
+- **[10:53]** a chip on each watchin and them second
+- **[10:55]** ayah we could ever touch it you know how
+- **[10:56]** adorable Bo
+- **[10:59]** non-inclusive would he feels on a dongha
+- **[11:00]** rather my romantic abandon what to our
+- **[11:03]** Hannah wattage wah hey you to me and
+- **[11:06]** take it
+- **[11:06]** Tonya momentum the conga organic yes
+- **[11:12]** organic angora dongha couldn't go to
+- **[11:15]** hear someone of happiness all on Truman
+- **[11:16]** I see my student there hustling Tonya
+- **[11:19]** good was harmed anyway I'm at Siemens
+- **[11:21]** all couch y'all memory cutting a keypad
+- **[11:24]** or go hang our hat on that shortcut to
+- **[11:25]** go don't you to charge us women watching
+- **[11:28]** Hollywood anything de novo rather go
+- **[11:31]** they are you're gonna have the printed a
+- **[11:33]** reproduction all curious hammering this
+- **[11:36]** here you come oh no

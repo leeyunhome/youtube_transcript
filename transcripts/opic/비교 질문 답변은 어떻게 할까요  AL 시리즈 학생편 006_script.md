@@ -1,0 +1,286 @@
+# 비교 질문 답변은 어떻게 할까요? | AL 시리즈 학생편 006
+
+- **Video URL:** https://www.youtube.com/watch?v=PI2FFtUS-oM
+
+## Closed Captions Transcript
+
+- **[00:00]** we're young do we know you know I think
+- **[00:02]** about what you did during your free time
+- **[00:04]** as a child
+- **[00:05]** do you have more free time now than when
+- **[00:07]** you were a child
+- **[00:08]** tell me about your free time now
+- **[00:10]** compared to when you were a child
+- **[00:12]** you're a boom I've recently had some
+- **[00:14]** legal issues that I had to deal with and
+- **[00:16]** I'm pretty sure some of you have noticed
+- **[00:19]** that I've taken down some videos six
+- **[00:21]** videos actually I apologize because I
+- **[00:24]** know some of you really liked those
+- **[00:25]** videos but leave you me I promise you I
+- **[00:29]** will remake those videos and make it
+- **[00:31]** even better and I will try to re-upload
+- **[00:33]** them ASAP
+- **[00:35]** anyway let's now focus on Rachel um all
+- **[00:38]** right I think I didn't do anything much
+- **[00:42]** when I was child during my free time and
+- **[00:46]** at the time I really liked to stay at
+- **[00:49]** home and relax and my mom was usually
+- **[00:53]** like wait till did you do your homework
+- **[00:55]** or wait till clean your room whenever I
+- **[00:59]** had my free time
+- **[01:01]** she always nagging me to do something
+- **[01:04]** more productive and I found this so
+- **[01:09]** annoying
+- **[01:10]** and I never understood why she wouldn't
+- **[01:14]** let me fear for now I had more freedom
+- **[01:18]** from my mom in the whenever I had my
+- **[01:22]** free time I really like to go to the
+- **[01:26]** movies and the luckily there's movie
+- **[01:29]** theater there by my home I am starting
+- **[01:34]** to get worried now because I don't feel
+- **[01:38]** like going too far in what I mean and
+- **[01:42]** I'm not sure if I had more free time now
+- **[01:47]** as an adult but what is first circus
+- **[01:51]** that I have definitely more freedom from
+- **[01:55]** my mom's negative this was a pretty
+- **[01:57]** solid answer
+- **[01:59]** I wonder if Rachel's actually started to
+- **[02:01]** prepare for some of these answers now
+- **[02:03]** now that she's going on YouTube anyway
+- **[02:05]** each human in comparison to Mooney Jeong
+- **[02:08]** GIGO heart dinner Upton to Johan
+- **[02:10]** strategy capito Hamidah when you are
+- **[02:12]** answering a comparison question you
+- **[02:14]** a clear main point but this main point
+- **[02:16]** is not just any main point it is
+- **[02:18]** something that I like to call a pure
+- **[02:20]** present what I mean by pure present is
+- **[02:23]** that you're only thinking about the
+- **[02:24]** present and that's it no comparison
+- **[02:27]** words just the present so if you say
+- **[02:29]** something like oh you know I have a lot
+- **[02:31]** more free time now than when I was a
+- **[02:34]** child you are already comparing and I do
+- **[02:36]** not want you to do that now please don't
+- **[02:39]** get me wrong in normal conversation this
+- **[02:41]** is actually very good but because this
+- **[02:43]** is OPIC we have very limited time and so
+- **[02:46]** we're trying to make our answers as
+- **[02:48]** clear as possible easy to understand and
+- **[02:51]** boost up our marks if you give a pure
+- **[02:53]** present answer then your next step is
+- **[02:55]** actually past tense and when you do this
+- **[02:58]** your main point which is pure present
+- **[03:01]** and then the next part of your answer
+- **[03:03]** which is past experience the contrast
+- **[03:05]** between those two parts becomes way
+- **[03:08]** bigger and that is the only reason why
+- **[03:10]** we are making it a pure present and also
+- **[03:13]** when you're listening to the question it
+- **[03:15]** becomes easier for you you don't have to
+- **[03:17]** be thinking about anything else
+- **[03:18]** Tiago de semana Tinka hominem attack and
+- **[03:21]** as you answer that then you can
+- **[03:23]** naturally think about your next point of
+- **[03:25]** course after the past experience you
+- **[03:27]** jump right into the present and then
+- **[03:29]** here there's another contrast you don't
+- **[03:32]** peek out you wonder heck there you are
+- **[03:33]** showing two kinds of contrasts here from
+- **[03:36]** your main point to the past and from the
+- **[03:38]** past to the present and you are
+- **[03:40]** skillfully doing this in a very
+- **[03:42]** organized fashion would enjoy Rachel to
+- **[03:44]** the verge has a pops it all right thing
+- **[03:48]** I didn't do anything watch when I was
+- **[03:51]** trial during my free time and at the
+- **[03:56]** time I really liked to just stay at home
+- **[03:58]** and relax um all right I think I didn't
+- **[04:02]** do anything much when I was a child
+- **[04:04]** during my free time now this is
+- **[04:07]** interesting
+- **[04:07]** usually most comparison questions end
+- **[04:10]** with the present so the format is
+- **[04:12]** usually like compare the past to the
+- **[04:14]** present but this is a rare comparison
+- **[04:17]** question it actually ends with the past
+- **[04:19]** so the format is compare the present to
+- **[04:22]** the past now for most of you I just
+- **[04:24]** highly recommend using
+- **[04:26]** our formula stick to the pure present
+- **[04:28]** main point and then go to the past so
+- **[04:31]** Rachel over here she has a little bit
+- **[04:32]** more of an advanced listening ability
+- **[04:35]** and so her strategy is a little bit
+- **[04:36]** different she tends to start her answer
+- **[04:39]** with whatever was asked last this is
+- **[04:41]** actually a very advanced method and so
+- **[04:44]** if you feel like you're listening
+- **[04:45]** ability is actually quite good try this
+- **[04:47]** strategy it'll make your answers even
+- **[04:49]** more natural change a yogi Tallapoosa
+- **[04:51]** anything much oh you don't have a good'n
+- **[04:54]** you can pretty much use this anywhere
+- **[04:56]** and after you use this expression your
+- **[04:58]** sentence after that sounds so natural so
+- **[05:01]** for example I went to Japan last year
+- **[05:03]** and you know I didn't do anything much
+- **[05:05]** all I did was eat any man you know
+- **[05:07]** whenever I go to a coffee shop I don't
+- **[05:10]** do all that much all I do is get a cup
+- **[05:12]** of coffee and study anything much all
+- **[05:14]** that much Haga bees tell me that yogi
+- **[05:16]** town balloon of woman-owned when I was
+- **[05:18]** child she needs the word are there so
+- **[05:21]** when I was a child during my free time
+- **[05:24]** during a contention man I highly
+- **[05:26]** recommend whenever I had free time I
+- **[05:28]** think that's a little bit more natural
+- **[05:29]** and um at that time I really like to
+- **[05:32]** stay at home and relax okay so because
+- **[05:36]** she used the word I really liked you
+- **[05:38]** shouldn't put the IDI here so I really
+- **[05:41]** liked to stay home and relax but here
+- **[05:43]** this is a very common mistake at that
+- **[05:46]** time Koreans use this all the time can
+- **[05:48]** they at that time ire go during those
+- **[05:50]** times
+- **[05:51]** soo-dong gee I mean you're not back then
+- **[05:53]** don't can text me that and my mom was
+- **[05:56]** usually like wait L did you do your
+- **[05:58]** homework or way to clean your room
+- **[06:01]** whenever I had my free time she always
+- **[06:05]** nagging me to do something more
+- **[06:08]** productive yogini rachel capital
+- **[06:11]** quotation or garcia and my mom was
+- **[06:13]** usually like Rachel did you do your
+- **[06:16]** homework or Rachel clean your room
+- **[06:19]** who do you owe money cut this a nail how
+- **[06:21]** much no he take its care for her again
+- **[06:23]** double direct quotation or socio sound
+- **[06:25]** got one jujube new kendama Yoga town
+- **[06:27]** whenever I had my free time
+- **[06:29]** yogi mine and Tommy oh hang with me des
+- **[06:31]** I mean we cannot use anything else here
+- **[06:33]** whenever I had your free time whenever
+- **[06:36]** had my mother's free time it's kind of
+- **[06:38]** strange so just taking it out is much
+- **[06:40]** better doc edentia guru whenever I had
+- **[06:42]** free time bla bla bla and I mean no much
+- **[06:45]** was ill she always mad at me to do
+- **[06:48]** something more productive nagged
+- **[06:50]** productive no much won't another sauce
+- **[06:52]** to me that so cheeky
+- **[06:53]** we do menudo tangerine um - Monica
+- **[06:55]** Danielle each I'm to recap and Tori
+- **[06:57]** catchy to listen and I found it so
+- **[07:01]** annoying and I never understood why she
+- **[07:05]** wouldn't let me fear and um I found it
+- **[07:08]** so annoying Rachel and come job children
+- **[07:10]** what's hot hot you go take a more
+- **[07:12]** handbook on Mina coulda took a yogi
+- **[07:13]** expression in know much why I found it
+- **[07:15]** present incident I find it you catch an
+- **[07:18]** eye on you know can you jump down you
+- **[07:19]** know expression anokhin pure harmony
+- **[07:21]** none little cause we got your boy coming
+- **[07:23]** up could go you'll get time to minute
+- **[07:24]** door Rachel she don't get her boy now
+- **[07:26]** she's able to talk about the same thing
+- **[07:28]** over and over again in different ways
+- **[07:31]** making her answer so deep she starts by
+- **[07:34]** a direct quotation and then she explains
+- **[07:36]** what her mother did and now she's
+- **[07:37]** explaining how she felt and then she
+- **[07:39]** further explains that feeling just
+- **[07:42]** amazing can they check out you'll get to
+- **[07:43]** John Hannah gonna just to me that and I
+- **[07:45]** never understood why she wouldn't just
+- **[07:47]** let me be he hunt had our own Chantal
+- **[07:50]** not sure I get too limited but now I had
+- **[07:53]** more freedom from my mom and then
+- **[07:56]** whenever I had my free time I really
+- **[08:00]** like to go to the movies but now I have
+- **[08:04]** more freedom from my mom perfect
+- **[08:05]** sentence and um whenever I had my free
+- **[08:09]** time so in this case end up whenever I
+- **[08:11]** have free time is much better and of
+- **[08:14]** course please take out the word my as
+- **[08:16]** well as I have already explained that
+- **[08:18]** earlier on so Rachel should have said
+- **[08:20]** something like this whenever I have free
+- **[08:21]** time I really like to go to the movies
+- **[08:24]** yo you go to the movies got no much
+- **[08:26]** while minor haxing didn't I like to go
+- **[08:28]** to the movie theater Academy oh cool the
+- **[08:30]** Kentucky man I'm not too eager Horse
+- **[08:32]** Shinto natural Hamidah go to the movies
+- **[08:34]** and luckily there's movie theater there
+- **[08:37]** by my home I am starting to get worried
+- **[08:43]** now because
+- **[08:45]** I don't feel like going too far you know
+- **[08:48]** what I mean
+- **[08:49]** and um luckily there's aa movie theater
+- **[08:53]** nearby my home Onegin twice a turkey
+- **[08:55]** luckily hey get on T turning me down can
+- **[08:58]** yo get down to the bush Michelle and I
+- **[08:59]** think I'm starting to get old now
+- **[09:01]** because I don't feel like going too far
+- **[09:04]** you're gonna wonder what I mean
+- **[09:05]** sentencing me that I'm starting to
+- **[09:07]** jaunty tear da past tense he you gettin
+- **[09:10]** in I decided to go somewhere I decided
+- **[09:13]** to do this good expression to each other
+- **[09:15]** you can make an ongoing present tense in
+- **[09:17]** North America I'm starting to you know
+- **[09:20]** more know what your own expression you
+- **[09:21]** got your abundant money stop saying
+- **[09:22]**  no manure gonna gonna go get Anika
+- **[09:24]** I don't feel like going too far you're
+- **[09:27]** going on I don't want to go too far
+- **[09:28]** Buddha never Shinto you keen on an
+- **[09:30]** expression in the gun I feel like I
+- **[09:33]** don't feel like I felt like I didn't
+- **[09:36]** feel like you didn't go to my honey my
+- **[09:37]** knees higher BlueShield I'm a yogi my
+- **[09:39]** favorite part you know what I mean ya
+- **[09:41]** got Ava hunting in John Moore 100 go
+- **[09:44]** ahead don't cheat on Amita and I'm not
+- **[09:46]** sure if I had more free time now as an
+- **[09:50]** adult but what is pretty certain is that
+- **[09:54]** I have definitely more freedom from my
+- **[09:58]** mom's negative now take a look at this
+- **[10:00]** conclusion it is smack see I mean it is
+- **[10:03]** so nice and um I'm not sure if I have
+- **[10:05]** more free time now as an adult it's
+- **[10:08]** about what is for certain is that I have
+- **[10:10]** definitely more freedom from my mom's
+- **[10:13]** nagging católica know much about the
+- **[10:15]** kumara tonight oh you're gonna go to
+- **[10:17]** yoga conclusion Tasha Tanja no Samira
+- **[10:19]** can they get tired okay this is what I
+- **[10:21]** call a powerful conclusion you're open
+- **[10:23]** to the conclusion it is all magic Aoyama
+- **[10:25]** hominin then think about some feeling
+- **[10:27]** related thing that you have said and
+- **[10:29]** then reconfirm it in the conclusion so
+- **[10:31]** if you really hated something that in
+- **[10:33]** the conclusion do you still hate it now
+- **[10:35]** or is it much better and that'll make
+- **[10:37]** your conclusion so powerful and unique
+- **[10:39]** now let's take a look at some of these
+- **[10:40]** expressions I'm not sure no more no more
+- **[10:42]** smooth haggle ship kisser suing an
+- **[10:45]** expression imita and of course rachel
+- **[10:46]** loves to use for certain to give Amiata
+- **[10:49]** eat in the kamijou and then this last
+- **[10:50]** one definitely to get cutter it's an
+- **[10:53]** added detail
+- **[10:54]** that makes her sentence even richer this
+- **[10:56]** is OPEC no Jam don't you men live
+- **[10:59]** youtuber Madison come with me that it on
+- **[11:01]** a bungalow Chicago diamond having a
+- **[11:02]** normal schedule under Kissimmee
+- **[11:04]** mandhaakini PDO Goswami this was to me
+- **[11:06]** like boom

@@ -1,0 +1,159 @@
+# 영국여자와 함께 재활용문제 겁나 쉽게 대답하기! | 오픽 외국인편 003
+
+- **Video URL:** https://www.youtube.com/watch?v=cWTQmA6lV-w
+
+## Closed Captions Transcript
+
+- **[00:00]** I like to know about how recycling is practiced in your country.  What do people specifically do? Tell me how things are recycled.
+- **[00:08]** Oh dear Lord!
+- **[00:11]** Wow!
+- **[00:15]** This girl over here... She says, "Oh, my Lord!"
+- **[00:21]** Whenever you do OPIC, do you want to be a robot or a human being?
+- **[00:33]** You have to be very natural So, she says, "Oh, my Lord!".
+- **[00:38]** UK 영어
+- **[00:40]** I recommend... because I'm Canadian...
+- **[00:42]** Try something like this: Oh, my God!
+- **[00:50]** I like: Oh my gosh!
+- **[00:53]** Oh my goodness!
+- **[00:58]** Whenever you are very confused or... Holy cow this is just a hard question or... What the heck?!
+- **[01:06]** Well, I live in a very small apartment building
+- **[01:09]** Um so not like one of the big uh apartment villages.
+- **[01:15]** Apartment villages. Now, that's interesting.
+- **[01:18]** I think what she meant to say was: apartment complexes.
+- **[01:21]** You see, in Korea, there are so many apartments all grouped together.
+- **[01:25]** They're like a family. They're like an army.
+- **[01:28]** And so actually when I first came to Korea...
+- **[01:30]** I've never seen so many of the same groups of apartments in my life!
+- **[01:35]** And so when I looked it up on Google, it said that it's called: apartment complexes.
+- **[01:39]** Now
+- **[01:41]** Apartment
+- **[01:45]** Ever since you were young, from Kindergarten till now,  I'm sure, in school, you learned like this:
+- **[01:55]** But every time there's an  M-E-N-T word
+- **[01:58]** M-E-N-T
+- **[02:02]** "MINT" 발음: Apartment Government Garment Compliment
+- **[02:18]** Chocolate mint
+- **[02:20]** One more time!
+- **[02:24]** Apartment Appointment
+- **[02:26]** In OPIC, pronunciation isn't all that important
+- **[02:29]** But at the same time if you fix the M-E-N-T words
+- **[02:32]** If you practice that, you will sound so much better!
+- **[02:40]** I think the answer is obvious!
+- **[02:42]** There's not too much... There's not too much recycling going on.
+- **[02:48]** In OPIC, I always say: honesty is the best policy.
+- **[02:56]** Honestly, in OPIC sometimes just being honest is the best way to answer questions.
+- **[03:01]** This girl over here, she's just saying: "Hey, I don't do that much recycling."
+- **[03:05]** Honest
+- **[03:06]** That is also very, very good!
+- **[03:09]** Remember in OPIC it's not what you say. It's not about your points.
+- **[03:13]** It's about your feelings!
+- **[03:19]** Opinion
+- **[03:20]** Feelings and opinions
+- **[03:22]** Whatever you feel about it.
+- **[03:23]** It's not how you answer. It's what you feel about the answer.
+- **[03:27]** That is the most important thing.
+- **[03:30]** Expression / Sentence
+- **[03:32]** She says something that is very natural and very, very normal
+- **[03:35]** And at the same time very useful for many students trying to answer recycling questions.
+- **[03:40]** So she says:  "There's not too much recycling going on."
+- **[03:43]** Very nice.
+- **[03:46]** Too much / Too many
+- **[03:50]** Grammar
+- **[03:52]** In OPIC,  the countable and uncountable grammar  is very, very important.
+- **[03:56]** And so, you have to make sure that you don't make this mistake.
+- **[03:59]** Now sometimes it is confusing.
+- **[04:00]** And so if you're not good with this, just change: "too much", "too many" to: "a lot of"
+- **[04:06]** There's not too much recycling going on.
+- **[04:09]** There's not a lot of recycling going on.
+- **[04:11]** Not a lot of...
+- **[04:13]** You'll always be right in grammar.
+- **[04:19]** Recycling
+- **[04:23]** There's not a lot of recycling going on. You know, I actually don't do all that much.
+- **[04:29]** You know there's not a lot of recycling going on.  I mean, I actually don't do all that much.
+- **[04:38]** This girl when she's thinking she kind of repeats her words.
+- **[04:41]** Now for OPIC this is actually very, very good because, again, it makes you sound very natural.
+- **[04:46]** She says:  "There's not too much... there's not too much going on."
+- **[04:58]** She's a little bit slower there.
+- **[04:59]** And then she speeds up again.
+- **[05:01]** Now, if you do this in OPIC,  It makes you sound like you're thinking...
+- **[05:04]** And then, all of a sudden, when you're talking again...
+- **[05:07]** It makes you sound very smooth.
+- **[05:08]** There's not too much... there's not too much going on.
+- **[05:17]** Natural
+- **[05:20]** Let's say: coffee shops.
+- **[05:21]** Whenever I go to coffee shops, I usually order... I usually order Americanos.
+- **[05:29]** Repetition
+- **[05:30]** Holy cow! You should amazing!
+- **[05:32]** Um what I mostly see in my area are clear plastic bags or... that... those green netting bags.
+- **[05:42]** And it's just a mixture of tins, glass, plastics, paper...
+- **[05:47]** Actually I don't see paper at all.
+- **[05:50]** But mostly just um plastics and glass in these clear bags put out with the rubbish.
+- **[05:57]** What I mostly see in my area are...
+- **[06:00]** It is amazing actually. Nice and simple.
+- **[06:03]** And for AL, whenever you want to get that kind of mark,  you have to show your feeling here.
+- **[06:13]** Most students will say: there's this, there's that... And that's it.
+- **[06:17]** But here, she's saying what she sees. "What I mostly see..."
+- **[06:22]** Very, very, high quality English.
+- **[06:24]** Next, she talks about plastic bags and the green netting bags.
+- **[06:28]** Now there's different ways to say netting bags. You could say: poly mesh bags, net bags, poly mesh netting bags...
+- **[06:34]** So this is very good vocabulary to use when you're talking about recycling.
+- **[06:39]** After that, she gives very good examples.
+- **[06:41]** She says this: And it's just a mixture of tins, glass, plastics, paper... things like that.
+- **[06:47]** Very, very nice! I love that word: mixture.
+- **[06:50]** Whenever you're practicing (the topic) recycling, try to use that word "mixture".
+- **[06:54]** Um you can also do: It's a mix of... or It's a mixture of...
+- **[06:58]** Wow, very nice.
+- **[06:59]** But of course if you want to get AL that word "just"...
+- **[07:06]** You know a lot of students... they don't know how to use the word "just".
+- **[07:09]** But if you want to boost your English you use those little words.
+- **[07:13]** It's those little words that count.
+- **[07:15]** So --> It's "just" a mixture of... compared to --> It's a mixture of...
+- **[07:18]** Your sentences are longer and it just sounds way better and way more natural.
+- **[07:23]** Now there's a moment where she actually becomes honest again and she says:
+- **[07:27]** Wait a minute... actually, I don't see paper at all.
+- **[07:30]** Again very, very natural... Very honest and very human.
+- **[07:34]** I totally recommend this kind of style.
+- **[07:36]** When you say something  - and if it's not accurate -  just be honest about it.
+- **[07:40]** In the OPIC test, it's all about these kinds of little things that make you sound way better.
+- **[07:45]** It doesn't make you sound scripted and it makes you sound like you're talking on the spot.
+- **[07:49]** Very good for OPIC.
+- **[07:50]** She also says the word: rubbish.
+- **[07:52]** Rubbish means "trash". And so it's a good word.
+- **[07:55]** Now, for me, I'm not all accustomed to "rubbish" because I mostly just use garbage or trash.
+- **[08:01]** So that's up to you. If you want to use UK English you could use "rubbish".  If you want to use North American English, I recommend "trash" or "garbage".
+- **[08:08]** But what I loved the most about it was that she was talking about recycling  and how it's mixed up with the trash as well.
+- **[08:14]** So, very good description there.
+- **[08:16]** So my understanding of it is that the garbage guys... can't... have to be able to recognize that it's recycling  as opposed to normal trash.
+- **[08:26]** My understanding of it...
+- **[08:28]** Very, very good sentence here.  It just basically means...
+- **[08:33]** Very, very, very nice. And then she says something that kind of made me laugh a little bit.  But she says "garbage guys".
+- **[08:39]** And that's so natural because she didn't know at the time what to call them.
+- **[08:43]** She just tried her best to describe who they are and she says: garbage guys.
+- **[08:47]** Of course she could have said  "garbage collectors" or "trash collectors"
+- **[08:51]** But garbage guys just sounds so natural.
+- **[08:54]** Now she goes even further by describing to us what the garbage guys' role is.
+- **[08:59]** She does this by telling us we need to recycle because...
+- **[09:03]** They, the garbage guys, need to recognize recycling as opposed to normal trash.
+- **[09:09]** Very good description here.
+- **[09:11]** I don't know all that much about recycling  but as I understand it  the reason why we recycle is because the garbage guys  need to be able to recognize that it's recycling  as opposed to normal trash.
+- **[09:32]** Fillers
+- **[09:38]** You know, I don't know all that much about recycling but um... you know as I understand it...
+- **[09:46]** You know, the reason why we recycle is because the garbage guys...
+- **[09:51]** You know, need to be able to recognize that it's recycling  as opposed to you know, normal trash.
+- **[10:01]** By the way, I know that was a very long sentence and, you know, you're probably thinking: "how can I memorize that?!"
+- **[10:06]** I'm just showing you the strategy here. The most important thing here is the: 감정I
+- **[10:11]** It's not just about the point, but it's about how you feel, what you see,  and what you see what others see.
+- **[10:19]** Do you know what I mean?
+- **[10:29]** Um my experience overall
+- **[10:33]** Conclusion
+- **[10:35]** Overall
+- **[10:37]** But this girl! She is so smooth.
+- **[10:39]** She doesn't just say "overall"... She says: "my experience overall"
+- **[10:44]** HOLY COW!
+- **[10:51]** Um my experience overall hasn't been terribly clear.
+- **[10:57]** But I'm also aware that it's quite different in the larger apartment blocks or villages.
+- **[11:04]** Great! Thank you!
+- **[11:12]** I'm sorry my Korean is very bad.  But I'm trying to make you understand that in her concluding sentence  she again becomes very honest...
+- **[11:19]** And says that:  "Yeah, I don't know too much about recycling, but hey,  by the way, I heard that in other places  they do it slightly differently.  But um, this is how much I know about it.
+- **[11:29]** Very honest. Very clear. Very natural.
+- **[11:35]** This is OPICNOJAM! If you enjoyed this kind of content 구독 해주십쇼!
+- **[11:40]** BOOM!

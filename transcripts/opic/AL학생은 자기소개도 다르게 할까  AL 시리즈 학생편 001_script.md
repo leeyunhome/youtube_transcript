@@ -1,0 +1,228 @@
+# AL학생은 자기소개도 다르게 할까? | AL 시리즈 학생편 001
+
+- **Video URL:** https://www.youtube.com/watch?v=WL6JVx9e05c
+
+## Closed Captions Transcript
+
+- **[00:22]** Jake I J so honey what you can eat oppa
+- **[00:24]** come on Anita where he or picture merely
+- **[00:26]** come into the cooked oh-seok energy I'm
+- **[00:28]** a computer Manette check ok Elsi
+- **[00:31]** research I'm under Putin J got a me
+- **[00:33]** perfect on AI Hudson or John I gotta go
+- **[00:35]** Oh picture Murtagh catchy hello to your
+- **[00:37]** mother
+- **[00:38]** dubaku Pomodoro bin directory err Nikki
+- **[00:41]** me morning she will juice email
+- **[00:43]** I know al is very hard but please please
+- **[00:45]** do not give up if we put our minds to it
+- **[00:47]** the sky's the limit
+- **[00:49]** good luck tonight Ola has a catchy
+- **[00:50]** kogarashi de all right she's she's
+- **[00:52]** waiting for me at the coffee shop here
+- **[00:54]** and should be nearby
+- **[00:55]** I don't exactly know where it is ok I'm
+- **[00:57]** looking for it right now she sent me the
+- **[00:59]** address all right to this place and it's
+- **[01:03]** the first time I've ever been to this
+- **[01:04]** coffee shop so we're gonna check it out
+- **[01:06]** right now
+- **[01:07]** all right but this place is really nice
+- **[01:08]** man look at this place I don't know if
+- **[01:10]** you guys can see it but ok here we go
+- **[01:12]** let's take a look over here and there's
+- **[01:13]** a lot of people over here a lot of
+- **[01:15]** people all right ok wait I think I found
+- **[01:17]** it here check it out ok hold on alright
+- **[01:19]** that's the place right here closes at 2
+- **[01:20]** a.m. perfect let's take a look
+- **[01:29]** okay I found it hey what's up what's up
+- **[01:36]** hey let's start the interview please
+- **[01:40]** introduce yourself you know I ain't sure
+- **[02:04]** the design I decide to go to kpop music
+- **[02:09]** dance cheers my a chick that's my weight
+- **[02:12]** so I went there actually you know what
+- **[02:18]** actually I took twice just twice classes
+- **[02:22]** just from this week I'm gonna keep
+- **[02:27]** learning okay
+- **[02:29]** and that's pretty much what I have to
+- **[02:31]** say about myself
+- **[02:33]** all right so ratio is a student of mine
+- **[02:35]** could you go Oh Peter come on joy you
+- **[02:37]** donated their current account or bigger
+- **[02:38]** there's some money Pilton go money young
+- **[02:40]** victim go come on Kim and then the other
+- **[02:42]** one through we had some money daughter
+- **[02:43]** can help on that go ahead sir so please
+- **[02:45]** do forgive her if you feel she's a
+- **[02:46]** little bit rusty at first but I could
+- **[02:49]** pretty much guarantee that after this
+- **[02:51]** whole entire al series you'll get a
+- **[02:53]** better understanding of what Al truly
+- **[02:56]** feels like in the end I hope this will
+- **[02:58]** be very helpful to all of you cha check
+- **[03:00]** out Rachel her my nugget on it don't
+- **[03:02]** listen to a turtle ship you know no
+- **[03:03]** matter jump on a had enjoyed a served in
+- **[03:06]** a richer band of another Tom I'm
+- **[03:08]** gon ganna go okay so Monica touching
+- **[03:10]** know how that corrected our Smita
+- **[03:12]** natalie portman original take a ballet
+- **[03:14]** Mariana de Madrid okay so matters Riku
+- **[03:16]** and she's also able to explain the
+- **[03:18]** simple things in greater detail non-stop
+- **[03:21]** anyway constant talking is the most
+- **[03:24]** important thing when it comes to a.m.
+- **[03:26]** and we're gonna look into that in
+- **[03:27]** greater detail no he says she
+- **[03:29]** cha-cha-cha mangia hi I'm Rachel
+- **[03:30]** rehearsal no more no much was to me that
+- **[03:32]** you're a boon introduction I had a hi my
+- **[03:34]** name is Rachel hey Hachi machi go can
+- **[03:36]** you hi I'm Rachel hey Bishop sure that
+- **[03:38]** is much much smoother yogi Bruna
+- **[03:41]** I'm huntin to Chi mashup show my name is
+- **[03:43]** who my name is what my name is Slim
+- **[03:47]** Shady
+- **[03:48]** that song is a very special case sonnig
+- **[03:50]** about the coup notable Luminara comes
+- **[03:52]** ahead of ships you know you people in a
+- **[03:54]** racially Banat are lesser uh uh actually
+- **[03:57]** my etiquette scenario i'm not an e or
+- **[03:59]** fillers me and saw a job because Hank
+- **[04:02]** Economo sleep or poison Krieger Yogi's
+- **[04:04]** what could honest hunt head up or head
+- **[04:06]** sail I don't know what to tell you about
+- **[04:07]** myself
+- **[04:08]** no much was it okay yeah I can come tall
+- **[04:10]** tends to get her let me know I don't
+- **[04:12]** really know what to tell you about
+- **[04:13]** myself we gotta touch what Sumida know
+- **[04:16]** he really did not work a yoga told coach
+- **[04:18]** your puny nail these days I really into
+- **[04:21]** I really into that Nina I'm really into
+- **[04:23]** kpop but I'm sure Rachel was just
+- **[04:25]** nervous because a normal conversation
+- **[04:27]** she usually doesn't make this kind of
+- **[04:29]** mistake can a yogi boo boo boo sheep
+- **[04:31]** chill I'm really into kpop Musa you're
+- **[04:33]** gonna take a day I'm told I couldn't
+- **[04:36]** give me Nika do you take it smooth
+- **[04:37]** hisses no he's on her way to the
+- **[04:39]** highlighting all that time you know what
+- **[04:40]** you gotta charge a suit on the nail take
+- **[04:42]** a natural Huggle are gonna be owned in
+- **[04:44]** the car up under don't my nice elbows
+- **[04:46]** sure because I'm you know you know what
+- **[04:48]** to Sumida now this part over here was
+- **[04:50]** also very natural I gained a lot of
+- **[04:52]** weight these days
+- **[04:54]** so I need to lose my weight because
+- **[04:56]** honey money talks to the gup-a I didn't
+- **[04:58]** eat your hand pure nerd don't want no
+- **[05:00]** money young Abraham Enoch all Hudson
+- **[05:02]** didn't I gained a lot of weight it came
+- **[05:03]** monitor I know Justin cuz so what he's
+- **[05:05]** so what her are Lake Anthony I get
+- **[05:07]** history so damn it cricket a are nick
+- **[05:09]** meao
+- **[05:10]** Krieger yogi cannot touch you guy okay
+- **[05:12]** oh so I really need to lose my weight
+- **[05:15]** how could he go yogi take a jaunt an
+- **[05:17]** eraser these days sigit continent hang
+- **[05:19]** on Zuma
+- **[05:19]** they don't mind Hudson today in these
+- **[05:21]** days they don't make a money to continue
+- **[05:22]** in your pay go connect these days or
+- **[05:24]** hominid person Thomas me that you're
+- **[05:26]** giving JH early a continue super jock
+- **[05:29]** hajikko Hoshi kuchisake-onna get up
+- **[05:32]** underdog John Terry attacking the key
+- **[05:34]** Mina Mina who taught him the heads of
+- **[05:36]** tillymann are crooked and Homolka same
+- **[05:38]** human hand to Vulcan tanti don't Hudson
+- **[05:40]** drink a so kuchela go Heather Sutra no
+- **[05:42]** more money could come a nerd with
+- **[05:44]** Heather be a giveaway Nika critical can
+- **[05:46]** you handle her go hazel tillymann
+- **[05:47]** Oakland oh no Gazoo yoginah so I should
+- **[05:50]** decide single coming so I decide to go
+- **[05:53]** to kpop music Dance Academy
+- **[05:54]** - Nikita I decided to go to kpop music
+- **[05:58]** dance academy to lose my to lose my
+- **[06:01]** weights you can't say don't get take it
+- **[06:02]** smooth and say oh you're here a chili
+- **[06:04]** oil your name you can't a none situation
+- **[06:06]** okay so matter so initially I pick a
+- **[06:08]** captain I go take a ship Cory hand point
+- **[06:10]** to the case okay man didn't dare talk
+- **[06:12]** we're gonna go meet her no he said took
+- **[06:14]** him to a child sir can laminin you
+- **[06:15]** cannot admit that I decided to take kpop
+- **[06:18]** dance lessons to lose my weight dance
+- **[06:20]** lessons through hominin they got up two
+- **[06:22]** songs and among people who ate that
+- **[06:24]** cream the kinian cousin jung yong-hwa no
+- **[06:25]** choice hard I want the focus got Amida
+- **[06:28]** yeah there's a Manny a puma no huh
+- **[06:30]** no Sandra I need to go to the hospital
+- **[06:31]** Jenner in the adenine I need to go see a
+- **[06:34]** doctor
+- **[06:35]** you came on a good news honey catch a
+- **[06:36]** common angle Salim didn't I need to go
+- **[06:38]** to a car repair center the native
+- **[06:40]** speaker didn't I need to take my car to
+- **[06:42]** a mechanic I want to e go to pick put a
+- **[06:45]** ruler and a g-man credito in the kaminin
+- **[06:47]** y'all gonna hunt a little commonality to
+- **[06:49]** add to my point let me give you some
+- **[06:51]** more examples if you have pain in your
+- **[06:53]** teeth Koreans go to a dental clinic but
+- **[06:56]** we go see a dentist if you need to get a
+- **[06:59]** haircut Koreans go to a hair salon but
+- **[07:02]** we go to a barber or a hairstylist
+- **[07:05]** I'm Mattoon Yahweh no Cushi pure Eau de
+- **[07:07]** cámara gonna tell y'all he's on the
+- **[07:09]** Rachel it's your money Mahajan their
+- **[07:10]** pupil minute so I went there take it to
+- **[07:12]** cook and I mean actually you know what
+- **[07:14]** you're gonna take it on their Nomad or
+- **[07:16]** actually dissociate you gonna yak I'll
+- **[07:18]** make a nervous had a coup pure progeny
+- **[07:20]** gun you know captain Tanner like hey so
+- **[07:22]** soon got her an estimate you kiss a yogi
+- **[07:25]** grammar or take a John Cacioppo Keo
+- **[07:26]** actually I took twice just twice classy
+- **[07:29]** girl money to listen to Garnett jokin
+- **[07:31]** thoughts hands rocky hell I mean then I
+- **[07:33]** only took two classes so far this week
+- **[07:36]** yogi keyword didn't so far she can
+- **[07:39]** catching in good on the comida Charlie
+- **[07:41]** okay and you gotta get yourself I'm
+- **[07:42]** gonna keep learning or cancel and then
+- **[07:44]** I'm going to keep learning to get up you
+- **[07:47]** know go man a hawk Center do you keep
+- **[07:48]** droppin in there something else mica
+- **[07:50]** going to annemun gonna torture key or a
+- **[07:53]** bundle iboga talk on Angie could you're
+- **[07:55]** gonna come into me that I'm gonna change
+- **[07:56]** help submit I'm not a good town bubala
+- **[07:58]** normal smooth head Samira and that's
+- **[08:00]** pretty much what I have to say about
+- **[08:02]** myself can a yo-yo coochie coohcie Peggy
+- **[08:05]** was her
+- **[08:05]** auto park manager Sumida and that's
+- **[08:08]** much all I have to say about myself so
+- **[08:10]** smooth so nice I highly recommend it to
+- **[08:13]** all of you
+- **[08:14]** this is opaque no J within an AR we s
+- **[08:18]** all your cattle huge a derecho get her
+- **[08:21]** to medium Shannon Airport introduction
+- **[08:23]** or his choking James Heller decompose
+- **[08:25]** economical all place economical now at
+- **[08:28]** 1415 I hate you septa massamilla he al
+- **[08:31]** series come anatomical Kudo to head you
+- **[08:34]** she go like Kudo money love usage are
+- **[08:36]** critical rate you on to the Monica who
+- **[08:38]** yet you shall soon after kissing me the
+- **[08:40]** phone
